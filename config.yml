@@ -1,14 +1,17 @@
-﻿baseURL: 'http://localhost:1313/'
+﻿baseURL: 'https://pestpolicy.com/'
 languageCode: 'en-us'
-title: 'Your Site Title'
+title: 'Pest Policy Insights'
 theme: 'hugo-PaperMod'
 
 outputs:
-  home: ['HTML', 'RSS', 'JSON']
+  home: ['HTML', 'RSS', 'JSON', 'sitemap']
 
 params:
   env: 'production'
   defaultTheme: 'auto'
+  title: "Pest Policy Insights"
+  description: "Your comprehensive resource for pest control policies, tips, and information."
+  robots: "index, follow"
 
   # Display settings
   showPostNav: true
@@ -22,6 +25,13 @@ params:
     title: "Recent Posts"
     content: "Latest updates from our blog"
 
+  # hugo-PaperMod specific SEO parameters (check theme docs)
+  siteLogo: "/images/logo.png"
+  defaultOgImage: "/images/share.png"
+  twitterSite: "@yourtwitterhandle"
+  twitterCreator: "@yourtwitterhandle"
+  # enableSchemaOrg: true
+
 taxonomies:
   tag: 'tags'
   category: 'categories'
@@ -32,11 +42,9 @@ permalinks:
 slug:
   ugly: false
 
-# Attempt to force front matter permalink:
 frontmatter:
   url: ["permalink"]
 
-# Enforce strict permalink requirements (Hugo 0.93+)
 build:
   errorOnMissingPagePermalinks: true
-  errorOnInvalidPermalinks: true  # Catches malformed URLs
+  errorOnInvalidPermalinks: true
