@@ -1,0 +1,42 @@
+﻿baseURL: 'http://localhost:1313/'
+languageCode: 'en-us'
+title: 'Your Site Title'
+theme: 'hugo-PaperMod'
+
+outputs:
+  home: ['HTML', 'RSS', 'JSON']
+
+params:
+  env: 'production'
+  defaultTheme: 'auto'
+
+  # Display settings
+  showPostNav: true
+  showBreadCrumbs: true
+  showReadingTime: true
+  showWordCount: true
+  showCodeCopy: true
+
+  # Homepage configuration
+  homeInfoParams:
+    title: "Recent Posts"
+    content: "Latest updates from our blog"
+
+taxonomies:
+  tag: 'tags'
+  category: 'categories'
+
+permalinks:
+  posts: "/:slug/"
+
+slug:
+  ugly: false
+
+# Attempt to force front matter permalink:
+frontmatter:
+  url: ["permalink"]
+
+# Enforce strict permalink requirements (Hugo 0.93+)
+build:
+  errorOnMissingPagePermalinks: true
+  errorOnInvalidPermalinks: true  # Catches malformed URLs
