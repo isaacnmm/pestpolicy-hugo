@@ -1,0 +1,60 @@
+baseURL: "https://pestpolicy.com/"
+languageCode: "en-us"
+title: 'Pest Policy Insights'
+theme: 'hugo-PaperMod'
+
+# Output Configuration
+outputs:
+  home: ["HTML", "RSS", "JSON"]
+  page: ["HTML"]
+  section: ["HTML", "RSS"]
+  sitemap: ["XML"]
+
+# XML Sitemap Settings
+outputFormats:
+  XML:
+    name: "Sitemap"
+    mediaType: "application/xml"
+    baseName: "sitemap"
+    isPlainText: true
+    notAlternative: true
+
+# Site Parameters
+params:
+  env: 'production'
+  defaultTheme: 'auto'
+  title: "Pest Policy Insights"
+  description: "Your comprehensive resource for pest control policies, tips, and information."
+  robots: "index, follow"
+  
+  # PaperMod Specific Settings (if any)
+  # sitemap: {}
+
+# Taxonomy Configuration (kept but excluded from sitemap)
+taxonomies:
+  tag: 'tags'
+  category: 'categories'
+
+# URL Structure
+permalinks:
+  posts: "/:slug/"
+
+slug:
+  ugly: false
+
+frontmatter:
+  url: ["permalink"]
+
+# Build Settings
+build:
+  errorOnMissingPagePermalinks: true
+  errorOnInvalidPermalinks: true
+  writeStats: true  # Helps with debugging
+
+# Sitemap Control
+sitemap:
+  changefreq: "weekly"
+  priority: 0.7
+  filename: "sitemap.xml"
+  taxonomies: []  # Explicitly empty to exclude all taxonomies
+  disable: false
