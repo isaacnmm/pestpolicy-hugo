@@ -1,18 +1,26 @@
 {{ printf "<?xml version=\"1.0\" encoding=\"utf-8\" standalone=\"yes\"?>" | safeHTML }}
 <urlset xmlns="http://www.sitemaps.org/schemas/sitemap/0.9"
         xmlns:xhtml="http://www.w3.org/1999/xhtml">
+  {{- /* Preserved original logic */ -}}
   {{ range where .Site.AllPages "Kind" "not in" (slice "section" "taxonomy" "term" "home" "404" "robotsTXT") }}
     {{ if and (ne .RelPermalink "/") (ne .Kind "404") }}
       {{ if not .Params.noindex }}
       <url>
         <loc>{{ .Permalink | absURL }}</loc>
         {{ if not .Lastmod.IsZero }}
-        <lastmod>{{ .Lastmod.Format "2006-01-02T15:04:05-07:00" | safeHTML }}</lastmod>
-        {{ end }}
+        <lastmod>{{ .Lastmod.Format "2006-01-02" | safeHTML }}</lastmod>{{ end }}
         <changefreq>{{ .Params.sitemap.changefreq | default "weekly" }}</changefreq>
         <priority>{{ .Params.sitemap.priority | default "0.8" }}</priority>
       </url>
       {{ end }}
     {{ end }}
   {{ end }}
+
+  {{- /* Safe addition: Homepage entry */ -}}
+  <url>
+    <loc>{{ .Site.BaseURL }}</loc>
+    <lastmod>{{ now.Format "2006-01-02" }}</lastmod>
+    <changefreq>daily</changefreq>
+    <priority>1.0</priority>
+  </url>
 </urlset>
