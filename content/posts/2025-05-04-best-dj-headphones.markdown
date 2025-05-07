@@ -6,6 +6,7 @@ categories:
 - Headphones
 tags: []
 slug: /best-dj-headphones/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Whether you’re a novice, a

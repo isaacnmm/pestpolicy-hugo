@@ -6,6 +6,7 @@ categories:
 - Mics
 tags: []
 slug: /best-wireless-lavalier-mic-for-dslr/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 For videography and photography, you'll require the best wireless lavalier mic for

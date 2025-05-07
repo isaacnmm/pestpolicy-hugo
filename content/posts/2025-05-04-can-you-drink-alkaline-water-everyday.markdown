@@ -7,6 +7,7 @@ categories:
 - Water
 tags: []
 slug: /can-you-drink-alkaline-water-everyday/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Can you drink alkaline water every day? Alkaline water contains a pH that's higher than 7 - regular tap water has a  pH of between 6.5 to 8.5 on the pH scale -

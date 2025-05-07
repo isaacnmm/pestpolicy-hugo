@@ -9,6 +9,7 @@ categories:
 - Rats
 tags: []
 slug: /rodent-control-in-tacoma/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Rodent control is crucial for maintaining a healthy and safe home environment, particularly in Tacoma, WA, where common rodents such as house mice, Norway rats, and roof rats are prevalent.

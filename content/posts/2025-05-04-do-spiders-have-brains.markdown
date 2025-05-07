@@ -7,6 +7,7 @@ categories:
 - Spiders
 tags: []
 slug: /do-spiders-have-brains/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Invertebrates and vertebrates follow the Haller’s Rule when considering the body size and brain comparison. For example, the ant's brain makes up 15% of its body mass. But, the difference is considerably bigger in spiders -m as outline din this

@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /does-rubbing-alcohol-kill-fleas/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Having fleas around your home can be a real menace. They like to bite and cause itchiness on pets and humans. Does

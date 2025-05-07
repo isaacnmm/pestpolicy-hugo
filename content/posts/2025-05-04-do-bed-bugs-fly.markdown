@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /do-bed-bugs-fly/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 When I first left my parent's house and got my apartment, it was a frustrating hustle to get rid of bed bugs. Just like myself, most homeowners fear and get a chill with the mention of a bed bug infestation. In today’s post, I'll be answering this question –

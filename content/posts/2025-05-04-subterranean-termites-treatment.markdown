@@ -12,6 +12,7 @@ tags:
 - termite control products
 - termite fumigation health risks
 slug: /subterranean-termites-treatment/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Subterranean termites cause damages amounting to over a billion-dollar annually - try the Subterranean Termites Treatment. Check these

@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /can-dog-fleas-transfer-to-humans/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Recently my friend, Jane, got a healthy-looking dog.

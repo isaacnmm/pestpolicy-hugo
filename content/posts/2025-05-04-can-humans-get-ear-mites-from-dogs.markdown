@@ -7,6 +7,7 @@ categories:
 - Mites
 tags: []
 slug: /can-humans-get-ear-mites-from-dogs/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Can humans get ear mites from dogs?

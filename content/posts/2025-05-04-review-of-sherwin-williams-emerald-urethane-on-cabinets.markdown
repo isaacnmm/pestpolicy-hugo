@@ -6,6 +6,7 @@ categories:
 - Guide
 tags: []
 slug: /review-of-sherwin-williams-emerald-urethane-on-cabinets/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Sherwin Williams Emerald Urethane is a premium cabinet paint designed to provide a durable, high-quality finish for wood surfaces like cabinets, doors, and trim. Known for its excellent coverage and smooth application, it has garnered attention for its long-lasting results. In this review, we will assess the key features of Emerald Urethane, its pros and cons, and how it compares to other cabinet paints on the market.

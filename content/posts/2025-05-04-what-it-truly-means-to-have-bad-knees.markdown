@@ -7,6 +7,7 @@ categories:
 - Running shoes
 tags: []
 slug: /what-it-truly-means-to-have-bad-knees/
+lastmod: 2025-05-07T12:21:29+03:00
 ---
 
 Below I discuss what it truly means to have Bad Knees? I was yearning to stay active, but I didn’t have my ever strong knees.

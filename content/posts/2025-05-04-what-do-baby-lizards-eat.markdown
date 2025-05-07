@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /what-do-baby-lizards-eat/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 What do baby lizards eat? What do lizards feed their young ones (also know as

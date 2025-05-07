@@ -6,6 +6,7 @@ categories:
 - Swing Sets
 tags: []
 slug: /how-to-stain-a-playset/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 In this article I will discuss step by step process of  How to Stain a Playset. If you’ve had your playset for more than a year it’s likely that you’ve noticed some fading, cracking, splitting, or even rotting.

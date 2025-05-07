@@ -6,6 +6,7 @@ categories:
 - Guide
 tags: []
 slug: /best-dump-carts-for-lawn-tractors/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 [Gardening and landscaping](https://extension.psu.edu/soil-management-in-home-gardens-and-landscapes)

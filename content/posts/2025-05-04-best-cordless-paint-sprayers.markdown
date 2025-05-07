@@ -7,6 +7,7 @@ categories:
 - Sprayers
 tags: []
 slug: /best-cordless-paint-sprayers/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 The best cordless paint sprayers must be portable, lightweight, and highly functional. Luckily, they won't have long and heavy hoses and extension cords - great for your DIY painting.

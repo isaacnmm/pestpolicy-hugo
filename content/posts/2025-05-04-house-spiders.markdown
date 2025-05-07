@@ -7,6 +7,7 @@ categories:
 - Spiders
 tags: []
 slug: /house-spiders/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 House Spiders (Parasteatoda tepidariorum) popular as the American house spider or common house spider are classified under the

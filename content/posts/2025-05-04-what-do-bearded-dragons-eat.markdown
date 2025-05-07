@@ -7,6 +7,7 @@ categories:
 - Lizard
 tags: []
 slug: /what-do-bearded-dragons-eat/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 What do bearded dragons eat? For a healthy life, it is important to feed your bearded dragon with a proper balanced diet. As a

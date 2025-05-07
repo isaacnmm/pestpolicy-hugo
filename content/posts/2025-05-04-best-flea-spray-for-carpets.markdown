@@ -6,6 +6,7 @@ categories:
 - Fleas
 tags: []
 slug: /best-flea-spray-for-carpets/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Keeping your carpets free from fleas is essential for maintaining a healthy and comfortable home environment. Fleas can quickly infest carpets, causing discomfort to pets and family members. Choosing the best flea spray for carpets can effectively eliminate these pests and prevent reinfestations. Let’s explore the top-rated options available on Amazon to help you make an informed decision.

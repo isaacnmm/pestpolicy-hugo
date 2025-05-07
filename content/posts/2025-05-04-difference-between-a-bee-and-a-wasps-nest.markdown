@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /difference-between-a-bee-and-a-wasps-nest/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Bee and wasp nests differ in several ways, including their construction, appearance, location, and the materials used. Here's a detailed comparison:

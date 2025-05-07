@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-fire-ant-killer-for-lawns/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 When choosing the best fire

@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-to-snake-a-drain/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 How to snake a drain? Sometimes you need a quick fix to your slow-moving drain. Or maybe pouring boiling water down the drain doesn't work anymore?

@@ -6,6 +6,7 @@ categories:
 - Tillers
 tags: []
 slug: /best-tiller-for-small-garden/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 The ideal tiller should be capable of preparing your soil adequately to transform it into a colorful and vibrant garden - try the

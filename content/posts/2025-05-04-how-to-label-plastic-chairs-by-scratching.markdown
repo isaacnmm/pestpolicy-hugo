@@ -7,6 +7,7 @@ categories:
 - How to
 tags: []
 slug: /how-to-label-plastic-chairs-by-scratching/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Labeling plastic chairs through scratching is a method for customizing or identifying items, whether for personal, business, or institutional purposes. Scratching involves physically etching text, numbers, or symbols into the surface of a plastic chair.

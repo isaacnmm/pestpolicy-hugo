@@ -7,6 +7,7 @@ categories:
 - Raccoons
 tags: []
 slug: /how-to-get-rid-of-raccoons/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Raccoons are clever, resourceful animals that can be a real nuisance when they invade your home or property. Known for their masked appearance and dexterous hands, raccoons often find ways to enter attics, basements, garages, and even inside walls, leading to damage and health concerns.

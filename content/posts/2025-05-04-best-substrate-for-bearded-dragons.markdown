@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-substrate-for-bearded-dragons/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 When choosing the best substrate for bearded dragons, you can consider things like safety, ease of cleaning, and the natural feel that mimics their

@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /male-vs-female-bed-bug/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Unlike other big animals like mammals, it's not easy to tell male or female

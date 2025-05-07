@@ -6,6 +6,7 @@ categories:
 - Guide
 tags: []
 slug: /how-to-remove-rust-from-large-metal-objects/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Rust is a common problem that can significantly damage metal surfaces, especially large objects exposed to the elements over time. While rust doesn’t always render an item unusable, it can be unsightly and, if left untreated, lead to structural damage.

@@ -6,6 +6,7 @@ categories:
 - Shoes
 tags: []
 slug: /best-shoes-for-waitressing/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 It's always tricky to choose non-slip waitress shoes, that are dress code policy compliant, for servers who hoist heavy plates and trays in fast food joints & dining restaurants.

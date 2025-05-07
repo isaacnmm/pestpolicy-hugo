@@ -6,6 +6,7 @@ categories:
 - Motherboards
 tags: []
 slug: /i5-6600k-vs-i7-6700k/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Its common knowledge that the Core i7 is the ultimate solution for content creators.

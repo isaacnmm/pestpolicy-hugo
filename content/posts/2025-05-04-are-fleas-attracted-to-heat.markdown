@@ -6,6 +6,7 @@ categories:
 - Guide
 tags: []
 slug: /are-fleas-attracted-to-heat/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 As fleas search for food

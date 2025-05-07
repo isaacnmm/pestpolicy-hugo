@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /bed-bugs-vs-mites/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 What are the differences between bed bugs vs. mites? No infestation from any of the

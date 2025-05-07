@@ -7,6 +7,7 @@ categories:
 - Tillers
 tags: []
 slug: /best-riding-lawn-mower-for-uneven-terrain/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 When it comes to maintaining a yard with uneven terrain, choosing the right riding lawn mower can make all the difference.

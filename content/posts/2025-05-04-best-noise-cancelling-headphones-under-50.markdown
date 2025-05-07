@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-noise-cancelling-headphones-under-50/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 If you're looking for the best

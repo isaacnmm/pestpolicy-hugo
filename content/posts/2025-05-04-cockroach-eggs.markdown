@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /cockroach-eggs/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 German cockroaches are smaller but more common in the house than the American cockroaches in the United States.

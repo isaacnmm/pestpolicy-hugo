@@ -7,6 +7,7 @@ categories:
 - Roaches
 tags: []
 slug: /best-fire-ant-killer/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 [Fire ants](http://entnemdept.ufl.edu/creatures/urban/ants/red_imported_fire_ant.htm)

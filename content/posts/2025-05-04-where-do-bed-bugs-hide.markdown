@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /where-do-bed-bugs-hide/
+lastmod: 2025-05-07T12:21:29+03:00
 ---
 
 Bed bugs are tiny insects (1/4 inch in body length) and are a nuisance to humans – their bites are painful and may cause anemia.

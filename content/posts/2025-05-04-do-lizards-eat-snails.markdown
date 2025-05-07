@@ -7,6 +7,7 @@ categories:
 - Lizard
 tags: []
 slug: /do-lizards-eat-snails/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Lizards are fascinating creatures, and their diverse dietary preferences reflect their adaptability to different environments.

@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /does-lambda-cyhalothrin-kill-fleas/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 [Lambda Cyhalothrin](http://npic.orst.edu/factsheets/l_cyhalogen.pdf)

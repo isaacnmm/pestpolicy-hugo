@@ -7,6 +7,7 @@ categories:
 - Termites
 tags: []
 slug: /soil-treatment-for-termites/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Soil treatment for termites involves using some contact insecticides around your house and yard to create barriers. The

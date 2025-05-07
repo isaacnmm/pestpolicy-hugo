@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-do-you-silence-a-cricket/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Have you ever found yourself lying awake at night, unable to sleep because of the incessant chirping of a cricket? Or perhaps you've been trying to concentrate on work or relax at home, only to be disrupted by that

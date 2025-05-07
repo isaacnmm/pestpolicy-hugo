@@ -6,6 +6,7 @@ categories:
 - Raspberry Pi 3
 tags: []
 slug: /how-to-format-sd-card-to-fat32/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Formatting the

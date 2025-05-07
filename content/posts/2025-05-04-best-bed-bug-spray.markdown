@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-bed-bug-spray/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Sometimes all we want is the best bed bug spray - one that's effective, safe to use around kids and pets, non-staining and it's odorless, and with no Pyrethrin.

@@ -7,6 +7,7 @@ categories:
 - Seattle
 tags: []
 slug: /navigating-rainy-season-in-seattle-protect-your-home-from-seasonal-pests/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Seattle's rainy season creates an ideal environment for pests. Increased moisture drives them indoors and provides breeding grounds around your home. Here’s how to protect your home from common pests during this time:

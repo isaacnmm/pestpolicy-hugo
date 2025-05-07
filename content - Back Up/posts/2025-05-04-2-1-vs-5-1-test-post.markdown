@@ -1,0 +1,7 @@
+---
+title: "Test Post"
+date: 2025-05-06T23:35:00+03:00 # Adjust timezone if needed
+slug: /test-post/
+---
+
+This is a test post.

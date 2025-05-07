@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /how-to-remove-paint-from-concrete-without-chemicals/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 For most homeowners with pets and small children, removing paint from concrete

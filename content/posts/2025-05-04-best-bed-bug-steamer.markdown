@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-bed-bug-steamer/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Bed bugs are a persistent and irritating pest that can infest homes, hotels, and other public spaces.

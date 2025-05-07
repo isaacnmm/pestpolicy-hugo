@@ -6,6 +6,7 @@ categories:
 - Swing Sets
 tags: []
 slug: /best-swing-sets-for-small-backyards/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 You want your kids to get out and get involved in outdoor play, but your backyard is so small. You're probably thinking about Best Swing Sets For Small Backyards that can perfectly fit your small space.

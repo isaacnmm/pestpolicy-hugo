@@ -6,6 +6,7 @@ categories:
 - Guide
 tags: []
 slug: /bartonella/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Bartonella is a type of bacteria that can cause a variety of illnesses in both humans and animals. It is often transmitted through the bites or scratches of infected animals, particularly cats, and is a major concern for people who handle animals frequently. In this article, we will explore the causes, symptoms, diagnosis, and treatment options for Bartonella infection.

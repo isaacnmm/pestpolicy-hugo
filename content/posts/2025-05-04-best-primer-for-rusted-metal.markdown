@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /best-primer-for-rusted-metal/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 There is nothing heartbreaking than seeing your most treasured product slowly vanishing as rust eats it away. All hope is not lost as we have some of the best primers for

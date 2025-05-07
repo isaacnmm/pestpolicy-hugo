@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-flea-shampoo-for-cats/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 What’s the best flea shampoo for cats? It can take up to three months to stop a flea outbreak, and you can attack your home all through the year.

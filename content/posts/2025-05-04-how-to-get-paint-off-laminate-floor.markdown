@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /how-to-get-paint-off-laminate-floor/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Staining the floor is standard when carrying out paint restoration, either indoors or outdoors. Usually, you will require to clean/remove the

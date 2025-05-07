@@ -6,6 +6,7 @@ categories:
 - Guide
 tags: []
 slug: /parasites-bedbugs-faqs/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Bedbugs are one of the most common household pests, but they are also among the most elusive. They are tiny, reddish-brown insects that feed on the blood of humans and animals. This FAQ page addresses some of the most commonly asked questions about bedbugs and other parasites that could invade your home.

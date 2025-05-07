@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-to-get-rid-of-drain-flies-in-the-bathroom/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Hey, little friends! Have you seen tiny insects (measuring 1/8 inch in length) flying around your shower drain or bathroom sink? Well, these could be

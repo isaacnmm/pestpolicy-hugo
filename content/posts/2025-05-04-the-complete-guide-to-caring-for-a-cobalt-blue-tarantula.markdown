@@ -7,6 +7,7 @@ categories:
 - Spiders
 tags: []
 slug: /the-complete-guide-to-caring-for-a-cobalt-blue-tarantula/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Keeping a tarantula is not for the weak-hearted. Only a professional enthusiast or an award-winning entomologist should have a cobalt blue tarantula in their home. Let's start by talking about caring for your cobalt blue tarantula spider.

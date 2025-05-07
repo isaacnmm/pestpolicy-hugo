@@ -6,6 +6,7 @@ categories:
 - walking Shoes
 tags: []
 slug: /best-shoes-for-bunions-and-plantar-fasciitis/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 Don’t let Bunions and Plantar Fasciitis discourage you from doing what you love most. Investing in some of the Best Shoes for Bunions and Plantar Fasciitis will help you enjoy running, walking, or just standing all day.

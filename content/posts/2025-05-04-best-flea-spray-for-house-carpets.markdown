@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-flea-spray-for-house-carpets/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 When choosing the best flea spray for house carpets, you can consider things like effectiveness,

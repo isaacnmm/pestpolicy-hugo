@@ -6,6 +6,7 @@ categories:
 - Weeds
 tags: []
 slug: /best-weed-barrier-under-gravel/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Are you looking for the best weed barrier under gravel? Well, I’ve covered it all below.

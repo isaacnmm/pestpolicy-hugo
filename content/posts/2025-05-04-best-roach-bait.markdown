@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-roach-bait/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 Cockroaches never go away. They persist, adapt, and reproduce, making them difficult to control.

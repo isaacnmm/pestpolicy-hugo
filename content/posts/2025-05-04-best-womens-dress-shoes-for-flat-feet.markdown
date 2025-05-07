@@ -6,6 +6,7 @@ categories:
 - Work Shoes
 tags: []
 slug: /best-womens-dress-shoes-for-flat-feet/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Finding the Best Women's Dress Shoes for Flat Feet can be a daunting task. People with flat feet or fallen arches tend to experience

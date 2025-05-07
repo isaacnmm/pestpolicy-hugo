@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /diatomaceous-earth/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Diatomaceous earth, anyone? You probably were searching for remedies to the roach infestation in your home or a solution to fleas that have become a nuisance to your pet and stumbled on

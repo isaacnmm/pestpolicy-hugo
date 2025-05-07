@@ -6,6 +6,7 @@ categories:
 - Exterminators
 tags: []
 slug: /pest-control-near-me/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 So if you're considering hiring a

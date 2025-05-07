@@ -6,6 +6,7 @@ categories:
 - Headphones
 tags: []
 slug: /best-noise-cancelling-headphones-under-150/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 What're the best noise-canceling headphones under 150? If you work in a busy office or you are a regular commuter or just planning an upcoming plane flight, you need ANC headphones to keep out the disrupting sounds around you.

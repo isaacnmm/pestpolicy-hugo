@@ -9,6 +9,7 @@ categories:
 - Rats
 tags: []
 slug: /rodent-control-in-eugene/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Rodent infestations can be a serious concern for homeowners in Eugene, OR, where the temperate climate and lush environment provide an ideal habitat for various rodent species.

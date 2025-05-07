@@ -6,6 +6,7 @@ categories:
 - Running shoes
 tags: []
 slug: /best-mens-running-shoes-for-bad-knees/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 Best Men’s Running Shoes for Bad Knees should have adequate arch support, proper cushioning, comfort, and high responsiveness.

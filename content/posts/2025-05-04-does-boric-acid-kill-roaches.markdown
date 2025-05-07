@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /does-boric-acid-kill-roaches/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 You'll get boric acid in either dust or

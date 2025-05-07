@@ -7,6 +7,7 @@ categories:
 - Mosquitoes
 tags: []
 slug: /do-mosquito-bracelets-work/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Are you tired of swatting away pesky mosquitoes

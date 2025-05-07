@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /where-do-fleas-come-from/
+lastmod: 2025-05-07T12:21:29+03:00
 ---
 
 Fleas are remarkably adaptable parasites that can survive in numerous environments beyond their preferred animal hosts. While they commonly live and feed on warm-blooded animals like dogs and cats, these persistent pests have evolved to thrive in various household settings. Understanding where fleas live is the first step toward effective control.

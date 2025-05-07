@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /are-crickets-herbivores-or-omnivores/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Crickets, those small chirping insects that often serenade us during warm summer nights, have long piqued our curiosity. Their intriguing behavior and the unique sounds they produce have sparked questions about their dietary habits.

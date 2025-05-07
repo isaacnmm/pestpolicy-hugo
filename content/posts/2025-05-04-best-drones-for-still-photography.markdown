@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-drones-for-still-photography/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 The world of photography has been transformed by drone technology or

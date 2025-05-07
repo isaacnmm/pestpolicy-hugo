@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /painting-vs-staining-deck/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Below I've outlined the key differences between painting vs. staining deck - and equally which one will be the best fit for which surfaces and weather conditions.

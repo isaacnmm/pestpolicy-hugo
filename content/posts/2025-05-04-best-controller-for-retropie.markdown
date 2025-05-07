@@ -6,6 +6,7 @@ categories:
 - Controllers
 tags: []
 slug: /best-controller-for-retropie/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 The "reluctantly" good gamepads lack analog sticks and broader functionality. These include compatibility with 3-D titles and extra buttons, which is unlike the Best Controller for Retropie that I review in this post.

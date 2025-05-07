@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /best-paint-stripper-for-metal/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 So, what’s the best paint stripper for metal? It's challenging to choose a remover for old

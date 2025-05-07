@@ -6,6 +6,7 @@ categories:
 - Tillers
 tags: []
 slug: /best-rototiller-for-rocky-soil/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 Gardening used to be back-breaking, especially if it involved a hoe and a shovel. However, with the advancement in technology.

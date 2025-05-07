@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-gnat-repellent/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 [Gnat infestation](http://ipm.ucanr.edu/PMG/PESTNOTES/pn7448.html)

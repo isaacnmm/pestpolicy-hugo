@@ -6,6 +6,7 @@ categories:
 - walking Shoes
 tags: []
 slug: /best-walking-shoes-for-lower-back-pain/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 With the many shoe brands on the market today, it can be tricky to choose good walking and

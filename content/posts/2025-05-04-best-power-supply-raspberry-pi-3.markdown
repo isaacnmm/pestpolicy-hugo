@@ -6,6 +6,7 @@ categories:
 - Raspberry Pi 3
 tags: []
 slug: /best-power-supply-raspberry-pi-3/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 You should know that many problems you experience with your

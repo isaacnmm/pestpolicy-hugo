@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /best-ladder-for-painting-2-story-house/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 What’s the best ladder for painting 2 story house?

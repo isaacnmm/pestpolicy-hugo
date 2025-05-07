@@ -6,6 +6,7 @@ categories:
 - Work Shoes
 tags: []
 slug: /best-trail-dirt-bike-for-beginners/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 What’s the best trail dirt bike for beginners? When it comes to dirt bike riding, the motor cross is the favorite option for most riders.

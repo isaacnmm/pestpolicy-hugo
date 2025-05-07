@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /living-room-paint-colors-with-brown-furniture/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Most often, it is hard to identify the best living room paint colors with brown

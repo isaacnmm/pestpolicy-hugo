@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-to-keep-fleas-off-me-while-i-sleep/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 When fleas jump onto your bed they'll make your sleep comfortable and queen inflict flea bites that are painful.

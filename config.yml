@@ -1,10 +1,30 @@
-﻿baseURL: 'https://pestpolicy.com/'
-languageCode: 'en-us'
+﻿baseURL: "https://pestpolicy.com/"
+languageCode: "en-us"
 title: 'Pest Policy Insights'
 theme: 'hugo-PaperMod'
 
 outputs:
-  home: ['HTML', 'RSS', 'JSON', 'sitemap']
+  home:
+    - "html"
+    - "rss"
+    - "json"
+  page:
+    - "html"
+  section:
+    - "html"
+    - "rss"
+  sitemap:
+    - "xml" # Use the built-in "xml" format
+
+outputFormats:
+  xml:
+    name: "Sitemap"
+    mediaType: "application/xml"
+    baseName: "sitemap"
+    isHTML: false
+    noUgly: true
+
+# Remove any custom sitemap_full configurations
 
 params:
   env: 'production'
@@ -13,24 +33,8 @@ params:
   description: "Your comprehensive resource for pest control policies, tips, and information."
   robots: "index, follow"
 
-  # Display settings
-  showPostNav: true
-  showBreadCrumbs: true
-  showReadingTime: true
-  showWordCount: true
-  showCodeCopy: true
-
-  # Homepage configuration
-  homeInfoParams:
-    title: "Recent Posts"
-    content: "Latest updates from our blog"
-
-  # hugo-PaperMod specific SEO parameters (check theme docs)
-  siteLogo: "/images/logo.png"
-  defaultOgImage: "/images/share.png"
-  twitterSite: "@yourtwitterhandle"
-  twitterCreator: "@yourtwitterhandle"
-  # enableSchemaOrg: true
+  # Any PaperMod specific sitemap configurations would go here
+  # Consult the theme's documentation
 
 taxonomies:
   tag: 'tags'

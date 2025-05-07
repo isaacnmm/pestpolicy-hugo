@@ -6,6 +6,7 @@ categories:
 - Controllers
 tags: []
 slug: /zd-v-controller/
+lastmod: 2025-05-07T12:21:29+03:00
 ---
 
 ZD-V + Controller - USB

@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /rustoleum-rust-reformer-review/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 In this article, I've reviewed the Rustoleum Rust Reformer on its suitability for

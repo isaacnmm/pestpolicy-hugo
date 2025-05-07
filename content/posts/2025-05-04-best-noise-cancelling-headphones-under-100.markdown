@@ -6,6 +6,7 @@ categories:
 - Headphones
 tags: []
 slug: /best-noise-cancelling-headphones-under-100/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 While the use of headphones in the current world is becoming a daily routine, many buyers have become victims of low-quality products.

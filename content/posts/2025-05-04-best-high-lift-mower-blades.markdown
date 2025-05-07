@@ -6,6 +6,7 @@ categories:
 - Mowers
 tags: []
 slug: /best-high-lift-mower-blades/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 Blades are one of the most components of a lawnmower. You need the best available blades to achieve that clean and efficient cut on your lawn.

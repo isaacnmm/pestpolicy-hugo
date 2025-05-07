@@ -7,6 +7,7 @@ categories:
 - Spiders
 tags: []
 slug: /do-spiders-have-hearts/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Spiders, being over 48,000  species, are an essential section of the earth ecosystem. These arthropods possess the

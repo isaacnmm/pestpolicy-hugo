@@ -6,6 +6,7 @@ categories:
 - Soundbars
 tags: []
 slug: /best-soundbars-for-the-money/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 Are you looking for the best soundbars for the money? Well, modern

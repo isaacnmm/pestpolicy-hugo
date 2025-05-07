@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /do-spiders-eat-bed-bugs/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 A bed bug infestation in your spaces may be

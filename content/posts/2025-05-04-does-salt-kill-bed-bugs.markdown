@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /does-salt-kill-bed-bugs/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Does salt kill bed bugs? There are many popular home remedies for bed bugs, including

@@ -6,6 +6,7 @@ categories:
 - Sprayers
 tags: []
 slug: /best-paint-sprayer-for-fence-stain/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 If you're setting to paint your tales, fences, and outdoor furniture, use the best

@@ -6,6 +6,7 @@ categories:
 - Swing Sets
 tags: []
 slug: /fun-backyard-flexible-flyer-swing-set/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 ![](/assets/img/e/ir)

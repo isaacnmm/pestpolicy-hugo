@@ -6,6 +6,7 @@ categories:
 - Tillers
 tags: []
 slug: /how-to-use-a-tiller-to-remove-grass/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Removing grass on your yard, lawn or garden can be fairly tiring, costly and time consuming tasks. Hand tools will make your work backbreaking and aren’t as accurate as powered tillers – this will improve your gardening productivity.

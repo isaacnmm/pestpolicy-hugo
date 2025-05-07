@@ -6,6 +6,7 @@ categories:
 - Guide
 tags: []
 slug: /dog-ear-mites-vs-yeast-infection/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 [Dog Ear Mites](https://www.petmd.com/dog/conditions/infectious-parasitic/how-treat-ear-mites-dogs)

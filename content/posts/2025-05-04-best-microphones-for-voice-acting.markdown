@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-microphones-for-voice-acting/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 Choosing the best microphones for

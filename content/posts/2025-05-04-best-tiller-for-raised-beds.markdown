@@ -6,6 +6,7 @@ categories:
 - Tillers
 tags: []
 slug: /best-tiller-for-raised-beds/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 Tilling your garden or raised beds manually isn’t an easy task. It does not only consume time but it’s also not very effective.

@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /what-can-i-eat-or-drink-to-keep-fleas-from-biting-me/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Fleas can be an irritating problem, especially if you’ve got pets or spend time outdoors. While there are plenty of

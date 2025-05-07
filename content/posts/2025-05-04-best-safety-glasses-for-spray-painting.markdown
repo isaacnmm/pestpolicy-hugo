@@ -6,6 +6,7 @@ categories:
 - Sprayers
 tags: []
 slug: /best-safety-glasses-for-spray-painting/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 Whether you are a DIYer or an experienced contractor, using eye and face protection is highly recommended when undertaking painting projects.

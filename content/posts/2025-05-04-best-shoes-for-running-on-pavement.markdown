@@ -6,6 +6,7 @@ categories:
 - Running shoes
 tags: []
 slug: /best-shoes-for-running-on-pavement/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 Running on pavement demands shoes that can handle the hard surface and repeated movements. Whether training for a marathon or regular runs, choosing sturdy shoes with added padding and good stability is crucial.

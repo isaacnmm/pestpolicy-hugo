@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /university-of-oregon/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 The University of Oregon (UO), located in Eugene, is a prominent public research university known for its commitment to academic excellence, innovation, and sustainability.

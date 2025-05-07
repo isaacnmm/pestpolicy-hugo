@@ -6,6 +6,7 @@ categories:
 - Controllers
 tags: []
 slug: /best-pc-games-for-couples/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 Looking for the best pc games for couples? Well, co-op games for couples offer an excellent opportunity to spend time, bond, and celebrate love.

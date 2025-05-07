@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /bed-bug-treatment-in-federal-way/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Bed bug infestations can be a distressing problem for homeowners in Federal Way, WA. These small, elusive pests are known for their ability to hide in cracks and crevices, making them difficult to detect and eliminate.

@@ -1,5 +1,5 @@
 ---
-layout: post
+layout: posts
 title: Why Are Ants Attracted to Sperm?
 date: '2025-05-04T14:22:04+00:00'
 categories:
@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /why-are-ants-attracted-to-sperm/
+lastmod: 2025-05-07T12:21:29+03:00
 ---
 
 Ants, those tiny yet industrious creatures, seem to have a peculiar penchant for some rather unexpected substances. One such substance that has raised eyebrows and piqued curiosity is human sperm.

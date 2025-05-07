@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /does-lysol-kill-bed-bugs/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Lysol is a disinfectant that kills germs, fungi, viruses, and bacteria

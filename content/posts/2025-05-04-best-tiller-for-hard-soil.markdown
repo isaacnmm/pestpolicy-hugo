@@ -6,6 +6,7 @@ categories:
 - Tillers
 tags: []
 slug: /best-tiller-for-hard-soil/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 [Breaking new ground](https://pestpolicy.com/best-tiller-for-breaking-new-ground/)

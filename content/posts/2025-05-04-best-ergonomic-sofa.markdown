@@ -6,6 +6,7 @@ categories:
 - Recliners
 tags: []
 slug: /best-ergonomic-sofa/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 The best Ergonomic Sofa is designed to adapt to your biomechanics' movements while you are working in office spaces, lounge, or living room.

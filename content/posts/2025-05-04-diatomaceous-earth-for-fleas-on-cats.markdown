@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /diatomaceous-earth-for-fleas-on-cats/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 You might have noticed that your cat is scratching its fur more than usual, and some small creatures are falling off its skin.

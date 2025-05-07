@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /best-folding-ladders-for-painters/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 It is practically impossible to accomplish a painting task without sourcing for a strong and stable ladder or

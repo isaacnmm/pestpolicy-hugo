@@ -7,6 +7,7 @@ categories:
 - Roaches
 tags: []
 slug: /best-roach-spray/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 In this article, I will review the best roach sprays.

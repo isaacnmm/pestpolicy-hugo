@@ -7,6 +7,7 @@ categories:
 - Sprayers
 tags: []
 slug: /best-shoes-for-painters/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 The best shoes for painters will protect your feet and provide adequate grip for various slick surfaces, including concrete.

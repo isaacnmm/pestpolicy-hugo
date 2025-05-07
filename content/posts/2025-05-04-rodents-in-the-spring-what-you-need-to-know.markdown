@@ -8,6 +8,7 @@ categories:
 - Raccoons
 tags: []
 slug: /rodents-in-the-spring-what-you-need-to-know/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Spring marks a period of increased rodent activity due to warmer weather and the availability of food and shelter. This season, rodents become more visible and active, which can lead to infestations if preventive measures are not taken.

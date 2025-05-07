@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /how-to-remove-latex-paint-from-metal/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Most homeowners hate it when paint lands on the metallic surfaces or subtle metal elements. But removing latex paint could be challenging if you're trying to scrape it off the metal surfaces.

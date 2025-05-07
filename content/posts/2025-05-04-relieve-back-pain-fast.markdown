@@ -7,6 +7,7 @@ categories:
 tags:
 - How-Tos
 slug: /relieve-back-pain-fast/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 **No doubt about it: **

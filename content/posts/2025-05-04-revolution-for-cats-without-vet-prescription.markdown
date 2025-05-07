@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /revolution-for-cats-without-vet-prescription/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 I, like many other pet owners, prefer getting effective and

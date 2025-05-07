@@ -9,6 +9,7 @@ categories:
 - Wasps
 tags: []
 slug: /identifying-and-preventing-garden-pests/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 A thriving garden is a joy to behold, but pests can quickly turn it into a battleground. Managing garden pests effectively involves identifying common invaders and implementing prevention strategies to keep plants healthy.

@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-ant-killer-for-yard/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 I've reviewed the best ant killers for your yard. You don’t really realize the importance of ant killers until you want to sit in your yard and your peaceful time gets disrupted because of so many ants crawling around.

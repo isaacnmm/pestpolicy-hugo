@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /dont-use-vinegar-and-baking-soda-to-clean-clogged-drains/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Today I’ll discuss my short investigation with vinegar and baking soda to see if it’s perfect in unblocking slow-moving drains as some

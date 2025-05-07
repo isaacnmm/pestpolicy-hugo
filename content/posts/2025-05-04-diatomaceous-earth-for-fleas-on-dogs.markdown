@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /diatomaceous-earth-for-fleas-on-dogs/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Fleas are not only irritating and a nuisance to your dog, but they also cause painful wounds and internal infections.

@@ -7,6 +7,7 @@ categories:
 - Ticks
 tags: []
 slug: /best-tick-collars-for-dogs/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 Tick treatments in dogs come in all forms - from shampoos, sprays, collars, serums to tick wipes.

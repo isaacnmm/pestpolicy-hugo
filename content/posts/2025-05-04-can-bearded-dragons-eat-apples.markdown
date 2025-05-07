@@ -7,6 +7,7 @@ categories:
 - Lizard
 tags: []
 slug: /can-bearded-dragons-eat-apples/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Can bearded dragons eat apples? Well, your bearded dragon deserve the right food and diet to maintain great health. Maybe some

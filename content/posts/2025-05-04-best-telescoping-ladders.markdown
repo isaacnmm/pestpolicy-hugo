@@ -6,6 +6,7 @@ categories:
 - Sprayers
 tags: []
 slug: /best-telescoping-ladders/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 If you are looking for an alternative to heavy and cumbersome ladders that lag you behind, our comprehensive guide caters to all your needs.

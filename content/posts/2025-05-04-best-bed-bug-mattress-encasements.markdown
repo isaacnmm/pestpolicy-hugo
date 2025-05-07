@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-bed-bug-mattress-encasements/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 A bedbug infestation and

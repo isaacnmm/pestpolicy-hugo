@@ -6,6 +6,7 @@ categories:
 - Guide
 tags: []
 slug: /how-much-do-bed-bug-exterminators-cost/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Bed bug infestations are a significant concern for homeowners, renters, and property managers. These tiny pests can cause both physical discomfort and emotional distress, as they often leave itchy, red bites and are notoriously difficult to eliminate.

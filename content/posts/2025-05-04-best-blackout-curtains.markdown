@@ -6,6 +6,7 @@ categories:
 - Recliners
 tags: []
 slug: /best-blackout-curtains/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 If you're like most of us, you hate that dazzling sunlight entering through your window or door during the lazy mornings.

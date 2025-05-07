@@ -6,6 +6,7 @@ categories:
 - Guide
 tags: []
 slug: /paint-colors-to-brighten-a-dark-room/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Transforming a dark room into a bright and inviting space is a common challenge in home decor. The right choice of paint colors can significantly improve the ambiance of any room, making it feel larger, lighter, and more welcoming. If you’re struggling with a dark room, consider these paint colors that work wonders in brightening up a space.

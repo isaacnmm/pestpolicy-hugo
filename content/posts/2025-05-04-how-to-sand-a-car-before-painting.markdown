@@ -6,6 +6,7 @@ categories:
 - Guide
 tags: []
 slug: /how-to-sand-a-car-before-painting/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Before painting a car, sanding is a crucial step that helps create a smooth surface for the paint to adhere to. It ensures that the new paint will go on evenly and helps avoid imperfections. Whether you're painting your car yourself or preparing it for a professional paint job, proper sanding is key. In this guide, we'll walk you through the process of sanding your car before painting, step by step.

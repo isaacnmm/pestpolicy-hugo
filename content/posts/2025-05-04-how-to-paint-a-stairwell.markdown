@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /how-to-paint-a-stairwell/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Stairwell painting may not be easy, especially when the wrong procedure or paint selection is engaged. Low-quality paint or inappropriate painting procedure leads to peeling and scuffing with time. Could you be facing similar challenges?

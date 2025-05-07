@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-fast-do-bed-bugs-spread-from-room-to-room/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 As long as the bed bugs get a blood meal, they

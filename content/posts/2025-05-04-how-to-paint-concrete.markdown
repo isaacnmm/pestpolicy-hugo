@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /how-to-paint-concrete/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Having an impressive concrete outlook is the dream of every homeowner. However, achieving an

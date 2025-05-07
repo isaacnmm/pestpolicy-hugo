@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /best-semi-transparent-deck-stain/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 By reading this feature on the best semi-transparent deck stain, you’ll learn my recommended paints to maintain your wooden

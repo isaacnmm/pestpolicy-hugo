@@ -7,6 +7,7 @@ categories:
 - Spiders
 tags: []
 slug: /how-to-get-rid-of-wolf-spiders/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Having spider infestation in your home could be such a chilling moment, especially if you have phobia and allergen reactions against the bites. Unlike black widows, wolf spiders are less painful and toxic.

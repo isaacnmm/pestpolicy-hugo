@@ -6,6 +6,7 @@ categories:
 - Guide
 tags: []
 slug: /best-long-trampolines-for-gymnastics/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 If you or your child aspires to be the next

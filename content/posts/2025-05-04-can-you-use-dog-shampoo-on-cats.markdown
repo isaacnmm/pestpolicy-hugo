@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /can-you-use-dog-shampoo-on-cats/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 This article will answer the question, "can you use dog shampoo on cats?"

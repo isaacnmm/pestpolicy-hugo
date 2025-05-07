@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /how-to-remove-paint-from-clothes/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 If you are a regular paint user, then avoiding paint stain may not be easy. Often, you get paint spots or patches that stain your clothes or garment. Whether it’s latex or acrylic paint, selecting the wrong cleaning method makes the paint removal process cumbersome.

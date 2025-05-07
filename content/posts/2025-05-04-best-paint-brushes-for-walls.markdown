@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /best-paint-brushes-for-walls/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 [Painting your walls with a brush](https://pestpolicy.com/how-to-paint-a-wall-with-a-brush/)

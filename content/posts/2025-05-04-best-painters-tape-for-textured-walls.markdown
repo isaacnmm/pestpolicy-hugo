@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /best-painters-tape-for-textured-walls/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 To paint like a pro, you need a painter's tape especially if you want to create a boundary between two differently painted surfaces.

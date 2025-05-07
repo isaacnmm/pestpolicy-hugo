@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /can-cockroaches-fly/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 It’s no secret that most homeowners hate cockroaches. Surprisingly, an even larger percentage of the people report that they'd fear meeting flying roaches. So, in this post, I'll be answering this question: Can Cockroaches Fly?

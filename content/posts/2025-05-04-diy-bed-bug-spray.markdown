@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /diy-bed-bug-spray/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Bed bugs

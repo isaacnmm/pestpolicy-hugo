@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /bed-bug-season-tips-for-a-bed-bug-free-home/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Bed bugs can be a year-round problem, but their activity tends to increase during warmer months when temperatures are between 70-80°F (21-27°C).

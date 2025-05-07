@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /can-you-use-acrylic-paint-on-wood/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Acrylic paint is a commonly used solvent in surface painting or paint restoration process. Its high stickiness action and unmatched durability have always made it stand out as compared to latex paint.

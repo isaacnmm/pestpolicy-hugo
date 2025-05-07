@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-to-get-rid-of-bed-bug-bite-scars/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Treating bed bug bites can become a problem if you don’t act on them promptly.

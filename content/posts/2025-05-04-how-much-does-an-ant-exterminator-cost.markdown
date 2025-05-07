@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-much-does-an-ant-exterminator-cost/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Having an ant infestation in your home or office could be problematic, especially when ants invade large colonies. Though ants are classified as a non-disease vector, ant stings are painful and often trigger allergies in people. How so you get rid of ants then?

@@ -7,6 +7,7 @@ categories:
 - Wasps
 tags: []
 slug: /best-wasp-spray/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 To defeat wasps’ colonies in your house or compound, you’ll need to acquire the best wasp spray. This is important, as wasps can be a nuisance at home, especially when disturbed.

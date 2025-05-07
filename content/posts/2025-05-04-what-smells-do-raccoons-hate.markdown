@@ -7,6 +7,7 @@ categories:
 - Raccoons
 tags: []
 slug: /what-smells-do-raccoons-hate/
+lastmod: 2025-05-07T12:21:29+03:00
 ---
 
 You don't want raccoons digging up your yard or tearing apart your house or garbage can, but you also don't like the idea of killing them.

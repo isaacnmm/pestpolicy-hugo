@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /how-to-remove-paint-from-metal-door/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 In this guide, I’ll show you how to remove paint from the metal door - paint that maybe landed there on purpose or from

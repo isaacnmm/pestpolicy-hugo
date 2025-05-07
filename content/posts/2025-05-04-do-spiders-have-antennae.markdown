@@ -7,6 +7,7 @@ categories:
 - Spiders
 tags: []
 slug: /do-spiders-have-antennae/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Spiders are fascinating creatures, often mistaken for insects due to their small size and presence in many of the same environments.

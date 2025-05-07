@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /why-do-crickets-make-noise-at-night/
+lastmod: 2025-05-07T12:21:29+03:00
 ---
 
 Crickets, those tiny, often unseen creatures that fill our summer nights with their melodious chirping, have long held a place in our collective curiosity.

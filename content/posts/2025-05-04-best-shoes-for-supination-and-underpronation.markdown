@@ -6,6 +6,7 @@ categories:
 - walking Shoes
 tags: []
 slug: /best-shoes-for-supination-and-underpronation/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 With so many supination/ under-pronation shoes (Brooks, Asics, Mizuno, New Balance, Aetrex, Saucony, and Nike), which one do you choose? Hopefully, this guide helps.

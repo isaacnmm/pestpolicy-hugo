@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /best-fence-paints/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 A fence is a complimentary part of our homes and a good home needs an

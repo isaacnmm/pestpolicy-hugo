@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /how-to-paint-plastic/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Painting plastic material could be one of the most cumbersome tasks, especially when wrong paint selection and improper procedures are undertaken. Usually, the finish paint coat may peel, fade, or flake with time, thus leading to primary material weakening.

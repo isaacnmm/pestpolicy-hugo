@@ -7,6 +7,7 @@ categories:
 - Running shoes
 tags: []
 slug: /how-to-play-tetherball/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Tetherball is a classic playground game that’s simple to learn, fun to play, and offers a great way to stay active. Whether you’re a beginner looking to understand the basics or an enthusiast aiming to refine your skills, this guide will walk you through everything you need to know about how to play tetherball.

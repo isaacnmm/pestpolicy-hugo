@@ -7,6 +7,7 @@ categories:
 - Raccoons
 tags: []
 slug: /how-to-repel-raccoons/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Below is how to repel raccoons? A raccoon is probably one of the most tenacious and clever pests that boasts a wide variety of athletic skills.

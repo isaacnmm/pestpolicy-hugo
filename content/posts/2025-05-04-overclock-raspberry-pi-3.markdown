@@ -6,6 +6,7 @@ categories:
 - Laptops
 tags: []
 slug: /overclock-raspberry-pi-3/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 In this article, I’ll teach you how to overclock your Raspberry pi 3 – with the goal of improving its performance.

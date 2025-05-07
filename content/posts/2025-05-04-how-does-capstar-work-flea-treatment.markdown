@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-does-capstar-work-flea-treatment/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 If you need to keep fleas off your cats and dogs, then the Capstar Flea Tablets is highly recommended by pet owners and vets - even when you

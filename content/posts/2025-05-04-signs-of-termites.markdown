@@ -7,6 +7,7 @@ categories:
 - Termites
 tags: []
 slug: /signs-of-termites/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Below I’ve outlined signs of termites - these will become evident with rising atmospheric pressure, wind, light intensity, moisture levels, and temperatures - proper termite identiifcation will help you decide on the

@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /whatcom-falls-park/
+lastmod: 2025-05-07T12:21:29+03:00
 ---
 
 ### Discover Whatcom Falls Park

@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /best-paints-for-stucco/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 Harsh weather is disastrous on your stucco but acquiring the

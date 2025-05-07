@@ -6,6 +6,7 @@ categories:
 - walking Shoes
 tags: []
 slug: /best-work-boots-for-plantar-fasciitis/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Are you searching for the

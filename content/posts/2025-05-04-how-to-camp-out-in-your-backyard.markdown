@@ -6,6 +6,7 @@ categories:
 - Backyard Games
 tags: []
 slug: /how-to-camp-out-in-your-backyard/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 If you’re looking for creative and awesome ideas on How to Camp Out In Your Backyard this article is for you. I will provide an ultimate guide for fun backyard camping for both adults and children.

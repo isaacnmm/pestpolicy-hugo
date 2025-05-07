@@ -7,6 +7,7 @@ categories:
 - Ticks
 tags: []
 slug: /best-tick-killer-for-yard/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 When choosing the best tick killer for your yard, you can consider things like effectiveness, safety for pets and humans, ease of application, and environmental impact.

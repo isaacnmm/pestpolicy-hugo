@@ -7,6 +7,7 @@ categories:
 - Lizard
 tags: []
 slug: /how-smart-are-bearded-dragons/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Bearded dragons are often hailed as one of the most intelligent reptiles, just behind some lizards.

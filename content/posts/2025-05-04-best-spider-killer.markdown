@@ -7,6 +7,7 @@ categories:
 - Spiders
 tags: []
 slug: /best-spider-killer/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 If you're dealing with dangerous spiders like the

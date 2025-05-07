@@ -7,6 +7,7 @@ categories:
 - Wasps
 tags: []
 slug: /best-spray-for-yellow-jackets/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 [Yellow Jackets (also known as wasps or hornets)](http://entnemdept.ufl.edu/creatures/urban/occas/hornet_yellowjacket.htm)

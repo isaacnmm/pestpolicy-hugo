@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-to-get-rid-of-a-heavy-roach-infestation/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 *What's the best way to kill roaches*

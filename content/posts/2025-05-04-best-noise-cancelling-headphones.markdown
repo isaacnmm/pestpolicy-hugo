@@ -6,6 +6,7 @@ categories:
 - Headphones
 tags: []
 slug: /best-noise-cancelling-headphones/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 The best noise-canceling headphones should sufficiently block out the noise in your surroundings to allow you to listen to your favorite audiobook, podcast, or music uninterruptedly.

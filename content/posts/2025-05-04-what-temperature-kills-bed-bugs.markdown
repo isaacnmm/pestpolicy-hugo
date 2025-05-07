@@ -6,6 +6,7 @@ categories:
 - Guide
 tags: []
 slug: /what-temperature-kills-bed-bugs/
+lastmod: 2025-05-07T12:21:29+03:00
 ---
 
 Bed bugs are notorious for being resilient pests that can infest your home without you even noticing. One of the most effective ways to eliminate them is by using temperature to your advantage. Bed bugs can’t survive extreme temperatures, and applying either heat or cold is an effective strategy to eradicate them.

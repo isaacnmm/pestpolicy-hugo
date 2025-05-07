@@ -6,6 +6,7 @@ categories:
 - Exterminators
 tags: []
 slug: /american-pest-review/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 When you get signs of pests in or around the house, it's critical that you hire a reliable pest exterminator.

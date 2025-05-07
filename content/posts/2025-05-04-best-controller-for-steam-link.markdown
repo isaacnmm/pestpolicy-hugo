@@ -6,6 +6,7 @@ categories:
 - Controllers
 tags: []
 slug: /best-controller-for-steam-link/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Your

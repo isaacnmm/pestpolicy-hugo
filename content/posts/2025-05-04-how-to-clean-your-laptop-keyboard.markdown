@@ -7,6 +7,7 @@ categories:
 - How to
 tags: []
 slug: /how-to-clean-your-laptop-keyboard/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Laptop keyboards are one of the most frequently used and easily soiled parts of your computer. Dust, food particles, and oils from your fingers can accumulate over time, making the keyboard dirty and reducing its functionality.

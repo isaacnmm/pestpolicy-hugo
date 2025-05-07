@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /ortho-home-defense-dual-action-bed-bug-killer-review/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Ortho Home Defense (Dual-Action) is one of the top

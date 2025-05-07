@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-dog-beds/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 A dog that has comfortable bedding (best dog beds) is always a happily living pet, and it will definitely bond with the owner and other households amazingly well.

@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-do-bed-bugs-spread/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 So, how do bed bugs spread? Bed bugs (the 1/4 inch long and wingless bugs) are a problem at home and in other accommodations. But how do bed bugs spread?

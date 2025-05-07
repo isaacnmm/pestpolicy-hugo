@@ -7,6 +7,7 @@ categories:
 - Tacoma
 tags: []
 slug: /tacoma-art-museum/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Tacoma, Washington, a city nestled in the picturesque Pacific Northwest, is not only renowned for its natural beauty but also for its vibrant cultural scene, of which the Tacoma Art Museum (TAM) stands as a proud cornerstone. Founded in 1935, TAM has evolved into a beacon of art and culture, enriching the community with its diverse collections and engaging exhibitions.

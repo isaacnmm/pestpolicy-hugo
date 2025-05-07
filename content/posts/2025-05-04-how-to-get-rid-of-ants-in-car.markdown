@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-to-get-rid-of-ants-in-car/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Have you sighted a streak of ants crawling around in your car? Well, rest assured that you are not the only one wanting to get rid of ants in the car and

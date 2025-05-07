@@ -7,6 +7,7 @@ categories:
 - Paint
 tags: []
 slug: /does-acetone-remove-paint/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Do you have a house wall, car, or

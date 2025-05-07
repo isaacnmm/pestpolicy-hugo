@@ -6,6 +6,7 @@ categories:
 - Guide
 tags: []
 slug: /best-driveway-alarms-wired-options/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Driveway alarms are an essential tool for monitoring activity in your driveway, offering an added layer of security for your home. While wireless options are popular,

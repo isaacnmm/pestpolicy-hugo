@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /how-to-thin-enamel-paint/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 If you are a paint enthusiast, then you must have used enamel paint in one way or another. The hard gloss finish is one mark of the quality thinning process in

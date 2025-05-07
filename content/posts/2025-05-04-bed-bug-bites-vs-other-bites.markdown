@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /bed-bug-bites-vs-other-bites/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Bedbugs are hard to control but their bites could also trigger allergic reactions, cause itching, and are painful.

@@ -6,6 +6,7 @@ categories:
 - Laptops
 tags: []
 slug: /best-external-hard-drive-for-music-production/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 The best external hard drive for music production will provide better performance and portability while you're

@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-indoor-flea-killer/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 It’s not only pet owners who have to deal with flea infestations. Each household is prone to flea attack, which means that even you might require the best indoor flea killer or

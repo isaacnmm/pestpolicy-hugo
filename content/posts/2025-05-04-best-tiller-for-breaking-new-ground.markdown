@@ -6,6 +6,7 @@ categories:
 - Tillers
 tags: []
 slug: /best-tiller-for-breaking-new-ground/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 When searching for the best tiller for breaking new ground, the manufacturer is not as important as the type of tool chosen.

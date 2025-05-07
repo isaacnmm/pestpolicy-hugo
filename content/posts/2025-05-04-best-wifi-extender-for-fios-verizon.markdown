@@ -6,6 +6,7 @@ categories:
 - Raspberry Pi 3
 tags: []
 slug: /best-wifi-extender-for-fios-verizon/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 The Best WiFi Extender for Verizon Fios will be critical in extending the signal reach or range in your house or office.

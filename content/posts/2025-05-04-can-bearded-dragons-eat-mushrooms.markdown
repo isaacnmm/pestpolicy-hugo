@@ -7,6 +7,7 @@ categories:
 - Lizard
 tags: []
 slug: /can-bearded-dragons-eat-mushrooms/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Bearded dragons enjoy a diverse and balanced diet that includes leafy greens such as collard greens and

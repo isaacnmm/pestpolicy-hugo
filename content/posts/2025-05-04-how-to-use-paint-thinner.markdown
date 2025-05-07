@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /how-to-use-paint-thinner/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Paint thinner including Xylene, Naptha, Acetone, and Turpentine

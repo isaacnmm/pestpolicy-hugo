@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /what-do-flea-eggs-look-like-on-a-dog/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Flea eggs are generally oval-shaped and off-white in color with their “chorion” soft shell - they will appear like some salt grain, sand, or dry skin. However, what do flea eggs look like on a dog?

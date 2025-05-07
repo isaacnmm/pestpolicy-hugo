@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /cat-fleas-vs-dog-fleas/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 There are two main types of fleas that live on cats and dogs - cat fleas and dog fleas. If you want to know the difference between cat fleas vs dog fleas, read on!

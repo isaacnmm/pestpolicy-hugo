@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /pure-lye-drain-opener-review/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Here's a Pure Lye Drain Opener Review - I am here in my basement, and the sink drain has been clogged for a few weeks. Definitely, the sink now has serious stuff such as oils, grease, and debris. I can already smell the bad odor since the water has been standing for a long time.

@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /are-crickets-decomposers/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 The intriguing world of crickets and their place in our ecosystem often spark questions about their role as decomposers.

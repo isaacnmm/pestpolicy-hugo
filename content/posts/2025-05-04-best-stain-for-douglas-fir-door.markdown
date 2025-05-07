@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-stain-for-douglas-fir-door/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 Are you looking for the best stain for a Douglas fir door? Is there any better way of staining your upright wooden door correctly? Definitely! Selecting the best stain for the

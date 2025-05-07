@@ -7,6 +7,7 @@ categories:
 - Snakes
 tags: []
 slug: /best-snake-repellent-for-yards/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 Snakes can be beneficial when they capture and eat

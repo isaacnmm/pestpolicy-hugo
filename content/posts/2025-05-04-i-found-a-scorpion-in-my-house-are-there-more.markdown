@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /i-found-a-scorpion-in-my-house-are-there-more/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Scorpions are a pest that will come out regularly in the desert areas of the United States (especially the southwestern regions).

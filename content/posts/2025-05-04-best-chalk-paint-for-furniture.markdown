@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /best-chalk-paint-for-furniture/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 With the best chalk paint for furniture, it is easy to bring back the aesthetic value of your furniture. These chalk paints can be used on a previously painted surface or that old furniture to restore them.

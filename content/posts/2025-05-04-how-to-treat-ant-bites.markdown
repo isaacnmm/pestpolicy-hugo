@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-to-treat-ant-bites/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Ant bites can be painful, cause swelling,

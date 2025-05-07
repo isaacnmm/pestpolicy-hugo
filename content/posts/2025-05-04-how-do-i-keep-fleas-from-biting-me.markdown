@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-do-i-keep-fleas-from-biting-me/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Flea bites are a common concern, especially in households with pets or in areas where pets frequently visit. These tiny pests can cause significant discomfort, itching, and even allergic reactions.

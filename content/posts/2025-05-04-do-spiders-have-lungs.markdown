@@ -7,6 +7,7 @@ categories:
 - Spiders
 tags: []
 slug: /do-spiders-have-lungs/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 [Spiders](https://www.sciencedirect.com/science/article/pii/B978012814043700025X)

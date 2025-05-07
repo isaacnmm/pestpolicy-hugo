@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-to-treat-fleas-in-the-yard/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 If you're tired of fleas in your yard, this blog post is for you. We'll discuss how to treat fleas in the yard.

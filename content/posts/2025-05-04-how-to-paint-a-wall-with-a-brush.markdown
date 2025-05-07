@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /how-to-paint-a-wall-with-a-brush/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Owning a classic painted wall is crucial in improving the aesthetic finish outlook of interior painting or exterior wall. Painting a wall with a brush may be challenging, especially when the wrong

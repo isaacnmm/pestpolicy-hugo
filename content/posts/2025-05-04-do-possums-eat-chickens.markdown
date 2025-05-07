@@ -7,6 +7,7 @@ categories:
 - Moles
 tags: []
 slug: /do-possums-eat-chickens/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Maybe some chicken (plus chicks) and their eggs have recently disappeared from their coop. Recently, there have been some native opossums

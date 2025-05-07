@@ -6,6 +6,7 @@ categories:
 - Mics
 tags: []
 slug: /best-headset-microphones-for-singing/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 For actors, dancers, and musicians - getting the best headset microphones for singing is a great start point.

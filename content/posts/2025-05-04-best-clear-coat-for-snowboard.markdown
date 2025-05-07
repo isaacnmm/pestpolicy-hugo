@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /best-clear-coat-for-snowboard/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 If you're looking for the best clear coat for a snowboard, ensure that the surface can hold paint besides being clean.

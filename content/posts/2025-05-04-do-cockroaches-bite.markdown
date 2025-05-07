@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /do-cockroaches-bite/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Cockroaches are infamous for being one of the most resilient and pervasive pests, invading homes and often causing distress among homeowners. They are often associated with the transmission of diseases and can be a real nuisance.

@@ -6,6 +6,7 @@ categories:
 - Recording
 tags: []
 slug: /what-is-piccolo/
+lastmod: 2025-05-07T12:21:29+03:00
 ---
 
 What is Piccolo? I’ve been a flutist for 5 years, but I also play the piccolo. In comparison to the flute, the

@@ -6,6 +6,7 @@ categories:
 - Controllers
 tags: []
 slug: /steam-controller-review/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Steam has released both the Steam Link and the

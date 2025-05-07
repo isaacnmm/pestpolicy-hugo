@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-do-fleas-mate/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 How do fleas mate? If you are unfortunate enough to be suffering a flea outbreak, you may be wondering how the mate and therefore spread - to

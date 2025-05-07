@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /how-to-paint-a-garage-floor/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Special epoxy (

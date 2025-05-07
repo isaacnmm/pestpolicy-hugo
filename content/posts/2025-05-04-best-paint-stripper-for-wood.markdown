@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /best-paint-stripper-for-wood/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 What’s the best paint stripper for wood? The most important part of the wood painting is preparing the surface because it determines the quality of the finishing.

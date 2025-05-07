@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /best-stain-for-red-oak-floors/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 Red Oak is considered one of the best solid wood to use on your floor to give it a durable and natural look. With this consideration, you may need to get the best stain for your red oak floor to give it natural beauty and keep it strong for ages.

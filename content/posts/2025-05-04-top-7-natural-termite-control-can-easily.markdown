@@ -7,6 +7,7 @@ categories:
 - Termites
 tags: []
 slug: /top-7-natural-termite-control-can-easily/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 In this article, I will discuss how to naturally control (compared to other

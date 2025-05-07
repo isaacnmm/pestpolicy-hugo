@@ -8,6 +8,7 @@ categories:
 - Vancouver
 tags: []
 slug: /bed-bug-control-in-vancouver/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Bed bugs are small, elusive insects that feed on the blood of humans and animals. They are a growing concern in Vancouver, as these pests can quickly infest homes, hotels, and other facilities.

@@ -9,6 +9,7 @@ categories:
 - Roaches
 tags: []
 slug: /how-to-avoid-pests-in-apartments/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Avoiding pests in apartments requires a combination of good hygiene, preventive measures, and prompt action if pests are spotted. Here are some effective strategies to keep your apartment pest-free:

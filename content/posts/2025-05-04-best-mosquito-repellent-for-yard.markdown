@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-mosquito-repellent-for-yard/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 Do you find yourself constantly worrying about your kids getting mosquitoes bites every time they are out playing in your backyard? Well, you should be.

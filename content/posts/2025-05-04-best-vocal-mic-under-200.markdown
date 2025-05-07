@@ -6,6 +6,7 @@ categories:
 - Mics
 tags: []
 slug: /best-vocal-mic-under-200/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Looking for the best

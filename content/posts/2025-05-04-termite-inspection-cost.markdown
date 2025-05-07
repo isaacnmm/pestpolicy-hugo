@@ -9,6 +9,7 @@ tags:
 - termite control cost
 - termite treatment
 slug: /termite-inspection-cost/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 You'll undertake a termite inspection during the regular home maintenance or home purchase processes - but it has many

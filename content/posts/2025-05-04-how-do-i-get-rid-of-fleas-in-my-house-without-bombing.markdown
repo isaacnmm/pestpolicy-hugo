@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-do-i-get-rid-of-fleas-in-my-house-without-bombing/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 The Pyrethrins in the flea spray kill the adult fleas targeting the fleas’ nervous system and thus kill or paralyze them - with IGR - 0.1% pyriproxyfen.

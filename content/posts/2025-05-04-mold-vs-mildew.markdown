@@ -7,6 +7,7 @@ categories:
 - Molds
 tags: []
 slug: /mold-vs-mildew/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 It’s common for homeowners to confuse mold vs. mildew - check below for mold vs. mildew. Although both are fungus, they exhibit certain distinct features that can be used to distinguish them.

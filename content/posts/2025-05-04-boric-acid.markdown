@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /boric-acid/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Boric acid, also known as orthoboric acid, boracic acid, and hydrogen borate is a

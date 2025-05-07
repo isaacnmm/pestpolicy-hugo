@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /when-to-use-a-cockroach-bomb/
+lastmod: 2025-05-07T12:21:29+03:00
 ---
 
 Roaches will invade your building or home through various routes and then multiply rapidly. There are many

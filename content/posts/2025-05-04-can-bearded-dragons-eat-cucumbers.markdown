@@ -7,6 +7,7 @@ categories:
 - Lizard
 tags: []
 slug: /can-bearded-dragons-eat-cucumbers/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Cucumbers are commonly used by humans in their culinary dishes as a source of vitamins, minerals, and fiber.

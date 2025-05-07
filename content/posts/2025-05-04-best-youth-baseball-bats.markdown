@@ -6,6 +6,7 @@ categories:
 - Shoes
 tags: []
 slug: /best-youth-baseball-bats/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 To maintain long-term game integrity, all youth players (sluggers) must acquire the

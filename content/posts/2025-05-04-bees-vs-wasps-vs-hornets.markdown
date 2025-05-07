@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /bees-vs-wasps-vs-hornets/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 What're the differences between bees vs. wasps vs.

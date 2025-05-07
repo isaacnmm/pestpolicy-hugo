@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /do-ants-eat-bed-bugs/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Bed bugs have natural predators which can be used as a pest control methods.

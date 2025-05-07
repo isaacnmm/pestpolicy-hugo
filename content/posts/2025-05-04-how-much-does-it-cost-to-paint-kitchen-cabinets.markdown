@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /how-much-does-it-cost-to-paint-kitchen-cabinets/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Painting protects primary material from damage and eliminates external agents that weaken the structural strength. However, costing

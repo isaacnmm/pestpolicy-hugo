@@ -6,6 +6,7 @@ categories:
 - HIIT Shoes
 tags: []
 slug: /best-shoes-for-lateral-movement/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 Investing in the Best Shoes for Lateral Movement will allow you to expand your workout routine.

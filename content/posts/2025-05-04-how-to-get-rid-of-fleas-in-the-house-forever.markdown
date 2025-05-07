@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-to-get-rid-of-fleas-in-the-house-forever/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Fleas are a

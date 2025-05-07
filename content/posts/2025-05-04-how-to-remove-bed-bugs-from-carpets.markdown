@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-to-remove-bed-bugs-from-carpets/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Dealing with bed bugs in carpets can be a frustrating and challenging task, as these pests hide deep within fibers and along edges. Fortunately, there are effective methods to eliminate them - from natural powders like

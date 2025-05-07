@@ -6,6 +6,7 @@ categories:
 - walking Shoes
 tags: []
 slug: /best-shoes-for-degenerative-disc-disease/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 Are you suffering from Degenerative Disc Disease? Are you looking for shoes that would help alleviate your disc-related spinal condition? You’re right on time! This article will focus on Best Shoes for Degenerative Disc Disease.

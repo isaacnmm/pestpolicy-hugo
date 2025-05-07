@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-to-kill-cockroach-eggs/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 How to kill cockroach eggs? Cockroaches are common pests in apartment buildings and our homes - you must

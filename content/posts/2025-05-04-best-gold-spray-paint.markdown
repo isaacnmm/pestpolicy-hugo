@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /best-gold-spray-paint/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 Getting the best gold

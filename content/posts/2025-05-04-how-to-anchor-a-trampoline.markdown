@@ -6,6 +6,7 @@ categories:
 - Guide
 tags: []
 slug: /how-to-anchor-a-trampoline/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 If you reside in areas that are susceptible to storms and strong winds, then you should learn how to

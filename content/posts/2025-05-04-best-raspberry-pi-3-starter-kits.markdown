@@ -6,6 +6,7 @@ categories:
 - Raspberry Pi 3
 tags: []
 slug: /best-raspberry-pi-3-starter-kits/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 [Raspberry Pi 3](https://pestpolicy.com/raspberry-pi-3-b-review/)

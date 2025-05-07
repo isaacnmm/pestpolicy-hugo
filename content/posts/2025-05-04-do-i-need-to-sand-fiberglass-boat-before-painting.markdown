@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /do-i-need-to-sand-fiberglass-boat-before-painting/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 If you're a boat owner looking to refresh the appearance of your fiberglass boat with a

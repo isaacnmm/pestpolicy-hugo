@@ -8,6 +8,7 @@ categories:
 - Roaches
 tags: []
 slug: /do-cockroaches-eat-bed-bugs/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Below I've tackled this questions - "do cockroaches eat bed bugs?" Most people dread from the disgusting sight of domestic cockroaches.

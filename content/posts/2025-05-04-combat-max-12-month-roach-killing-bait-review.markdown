@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /combat-max-12-month-roach-killing-bait-review/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 This is a combat max 12-month roach killing bait review. Maybe you’ve already heard the old myth that roaches and bed bugs can survive a nuclear bomb exposition. Roaches are by far the most adaptable pests on earth, which is why getting rid of an infestation is never an easy task.

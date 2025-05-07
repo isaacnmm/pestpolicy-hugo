@@ -6,6 +6,7 @@ categories:
 - Guide
 tags: []
 slug: /will-snow-ruin-a-trampoline-winterizing-trampoline/
+lastmod: 2025-05-07T12:21:29+03:00
 ---
 
 will snow ruin a trampoline? Winter is fast approaching, and many questions are running through your mind.

@@ -6,6 +6,7 @@ categories:
 - Recliners
 tags: []
 slug: /best-outdoor-rocking-chairs/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 Let me guess! At one time, you needed to relax on your outdoor porch but lacked comfortable sitting furniture.

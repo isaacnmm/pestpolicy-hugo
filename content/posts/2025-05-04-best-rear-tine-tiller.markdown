@@ -6,6 +6,7 @@ categories:
 - Tillers
 tags: []
 slug: /best-rear-tine-tiller/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 In this article, I've reviewed the best rear tine tillers. These garden tools have power and versatility.

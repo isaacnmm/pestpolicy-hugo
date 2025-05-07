@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /how-do-i-clean-and-maintain-my-painting-shoes-to-prolong-their-lifespan/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Are you a dedicated wall painter, who spends countless hours on ladders and scaffolding, giving walls a fresh coat of paint? But, over time, your shoes can accumulate dirt, paint, and other debris, affecting their performance and lifespan. Don't worry; we've got you covered!

@@ -9,6 +9,7 @@ categories:
 - Rats
 tags: []
 slug: /rodent-control-in-federal-way/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Rodent infestations can be a significant concern for homeowners in Federal Way, WA. The area's temperate climate and suburban environment provide an ideal habitat for various rodent species, such as Norway rats, roof rats, and house mice.

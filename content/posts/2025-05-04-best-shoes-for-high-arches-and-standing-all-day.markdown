@@ -6,6 +6,7 @@ categories:
 - Work Shoes
 tags: []
 slug: /best-shoes-for-high-arches-and-standing-all-day/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 Today I present the Best Shoes for High Arches and Standing All Day. Having high arches can make Standing All Day an unbearable task. A high arch provides less shock absorption while standing, walking, or running. This may lead to pain, fatigue, or soreness among other issues.

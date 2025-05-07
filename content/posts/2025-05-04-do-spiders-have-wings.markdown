@@ -7,6 +7,7 @@ categories:
 - Spiders
 tags: []
 slug: /do-spiders-have-wings/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Some spiders even exhibit ballooning behavior - but do spiders have wings? Spiders use the earth’s electric field as a guide

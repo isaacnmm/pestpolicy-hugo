@@ -6,6 +6,7 @@ categories:
 - Tillers
 tags: []
 slug: /harrowing-guide/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Preparing your seedbed may same easy from face value. However, proper preparation of your garden in readiness for planting could be the key to getting better yields from your garden. Plowing and harrowing work in tandem in seedbed preparation but are slightly different altogether.

@@ -6,6 +6,7 @@ categories:
 - Acoustic Guitars
 tags: []
 slug: /best-mics-for-recording-acoustic-guitar/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 Looking for the

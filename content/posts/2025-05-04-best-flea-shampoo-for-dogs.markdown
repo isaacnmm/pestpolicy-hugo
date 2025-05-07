@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-flea-shampoo-for-dogs/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Dealing with fleas can feel like a never-ending battle, but the right flea shampoo can make all the difference. If you're tired of watching your dog scratch and squirm, it's time to take action.

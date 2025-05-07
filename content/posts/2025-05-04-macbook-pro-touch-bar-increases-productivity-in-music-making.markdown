@@ -6,6 +6,7 @@ categories:
 - Laptops
 tags: []
 slug: /macbook-pro-touch-bar-increases-productivity-in-music-making/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 ****

@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /best-spray-paint-for-rims/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 As rims are exposed to harsh outdoor elements and fluctuating temperatures over time, they are likely to look chaffed and worn out, leading to a lower aesthetic value for your car.

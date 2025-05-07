@@ -7,6 +7,7 @@ categories:
 - Lizard
 tags: []
 slug: /can-bearded-dragons-eat-cantaloupe/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 **So, can Bearded Dragon eat cantaloupe?Quick answer is No! Cantaloupes are over sugary (causing teeth decay), very acidic (cause indigestion problems). Also, cantaloupe have excess water content (which cause runny poo), Low calcium: phosphorous ratio as well as low quantities of minerals.**

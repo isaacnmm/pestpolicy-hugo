@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /how-to-prep-a-room-for-paint/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Could be you need to paint your newly constructed room or carry out paint restoration to improve interior outlook impression. Then, it’s crucial to prep the room.

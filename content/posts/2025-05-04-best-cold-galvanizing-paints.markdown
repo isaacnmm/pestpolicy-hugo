@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /best-cold-galvanizing-paints/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Most cold galvanizing paints must contain a lot of zinc that greatly aid in galvanizing work to protect the metals surfaces against rust and corrosion.

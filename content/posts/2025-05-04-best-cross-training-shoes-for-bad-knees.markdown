@@ -6,6 +6,7 @@ categories:
 - HIIT Shoes
 tags: []
 slug: /best-cross-training-shoes-for-bad-knees/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 If you wish to engage in cross-training activities but have bad knees, you need to invest incorrect footwear.

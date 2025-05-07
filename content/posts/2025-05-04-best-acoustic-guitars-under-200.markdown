@@ -6,6 +6,7 @@ categories:
 - Acoustic Guitars
 tags: []
 slug: /best-acoustic-guitars-under-200/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 A review of the best acoustic guitars under 200 suggests that there is something for everyone depending on your budget and personal preferences - just like

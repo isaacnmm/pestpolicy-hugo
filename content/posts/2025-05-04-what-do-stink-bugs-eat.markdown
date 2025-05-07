@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /what-do-stink-bugs-eat/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Stink bugs are pests commonly

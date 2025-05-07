@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /rentokil-pest-control-review/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Rentokil provided various services for controlling and preventing pests like termites, roaches, and ants.

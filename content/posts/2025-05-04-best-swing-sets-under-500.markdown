@@ -6,6 +6,7 @@ categories:
 - Swing Sets
 tags: []
 slug: /best-swing-sets-under-500/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 Are you looking for an affordable but durable swing set? We know at times, parents are pressed within a rock and hard place, trying to make their children happy.

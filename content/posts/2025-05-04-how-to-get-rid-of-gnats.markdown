@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-to-get-rid-of-gnats/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 The presence of Gnats (either the biting or the non-biting species) can really be very disturbing and irritating since they keep moving rapidly in the entire room.

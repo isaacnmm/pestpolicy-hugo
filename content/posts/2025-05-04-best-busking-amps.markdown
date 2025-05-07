@@ -6,6 +6,7 @@ categories:
 - Guitar
 tags: []
 slug: /best-busking-amps/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 I've always had a problem performing in front of large crowds. This is exasperated when there is limitless space on the performance stage.

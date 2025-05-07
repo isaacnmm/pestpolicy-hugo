@@ -7,6 +7,7 @@ categories:
 - Raccoons
 tags: []
 slug: /what-do-groundhogs-eat/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Groundhogs are underground rodents that spend most of their lives in underground tunnels. They spend a lot of time burrowing and coming out in the open to look for food.  But what do groundhogs eat to survive underground?

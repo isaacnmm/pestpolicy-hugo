@@ -6,6 +6,7 @@ categories:
 - Headphones
 tags: []
 slug: /best-earbuds-under-50/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 So, which are the best earbuds under 50? The importance of earbuds cannot be underestimated in

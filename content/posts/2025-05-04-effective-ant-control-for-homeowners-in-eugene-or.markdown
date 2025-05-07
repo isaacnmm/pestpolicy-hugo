@@ -8,6 +8,7 @@ categories:
 - Guide
 tags: []
 slug: /effective-ant-control-for-homeowners-in-eugene-or/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Ant infestations are a common problem for homeowners in Eugene, OR, particularly during the warmer months.

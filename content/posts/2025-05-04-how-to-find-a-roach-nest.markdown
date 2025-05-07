@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-to-find-a-roach-nest/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 If you are reading this, you must be worried as you’ve seen some roaches running around your house.

@@ -6,6 +6,7 @@ categories:
 - Mics
 tags: []
 slug: /best-harmonica-microphones/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 The best harmonica microphones should be capable of

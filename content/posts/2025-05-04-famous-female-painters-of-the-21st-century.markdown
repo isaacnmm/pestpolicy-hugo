@@ -6,6 +6,7 @@ categories:
 - Guide
 tags: []
 slug: /famous-female-painters-of-the-21st-century/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 The 21st century has seen the rise of many influential female artists who have made significant contributions to the world of painting. From contemporary art to abstract and conceptual pieces, these women have shaped the modern art landscape. Here are some of the most famous female painters of the 21st century.

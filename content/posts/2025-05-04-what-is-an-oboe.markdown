@@ -6,6 +6,7 @@ categories:
 - Recording
 tags: []
 slug: /what-is-an-oboe/
+lastmod: 2025-05-07T12:21:29+03:00
 ---
 
 The World Guinness Records documents oboe and French horn are the hardest instruments of all to play. But, what is an oboe? How will it fit into your solo work on the orchestra?

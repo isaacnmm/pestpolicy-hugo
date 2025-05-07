@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /does-bug-spray-expire/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 **Whether you’re on a hiking trip or at the beach, a bug spray can be a lifesaver. But does bug spray expire? Well, the efficacy decreases over time. Since most products don’t have an expiry date, you should use them within 18 to 36 months. **

@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-fly-trap/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 In this post, I've reviewed the best fly trap available. Besides carrying bacteria that can cause illnesses, flies have a constant buzzing annoying as well.

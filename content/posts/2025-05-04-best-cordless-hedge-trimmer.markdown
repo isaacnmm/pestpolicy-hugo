@@ -6,6 +6,7 @@ categories:
 - Mowers
 tags: []
 slug: /best-cordless-hedge-trimmer/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Modern landscaping and gardening are becoming easy by day due to the introduction of electric tools that make life amazing.

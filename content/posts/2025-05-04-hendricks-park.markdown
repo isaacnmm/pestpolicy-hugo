@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /hendricks-park/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Hendricks Park, Eugene’s oldest city park, is a beloved destination for both residents and visitors. Established in 1906, this 80-acre park is nestled in the southeast hills of Eugene and offers a serene escape into nature.

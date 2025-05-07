@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /can-bed-bugs-live-in-carpet/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Bed bugs hide in a cluster at different locations in your house, including a bed frame, bed buttons, clothes, bedding, cracks, or mattress seam. But do bed bugs only hide in bedrooms? Probably not! You’ll also find these bugs in other locations in your residence. So, can bed bugs live on the carpet?

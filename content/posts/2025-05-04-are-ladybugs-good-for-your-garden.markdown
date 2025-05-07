@@ -7,6 +7,7 @@ categories:
 - Ladybugs
 tags: []
 slug: /are-ladybugs-good-for-your-garden/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Ladybugs, with their distinctive red and black spots, are not only charming but also incredibly beneficial for your garden.

@@ -8,6 +8,7 @@ categories:
 tags:
 - Sweat Bees
 slug: /get-rid-sweat-bees/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 I'm sitting here on my

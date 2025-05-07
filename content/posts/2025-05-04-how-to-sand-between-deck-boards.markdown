@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /how-to-sand-between-deck-boards/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 When building a deck, it’s crucial to learn how to sand between deck boards. You need to ensure that all boards are as smooth as possible. They must have a similar width for them to be level.

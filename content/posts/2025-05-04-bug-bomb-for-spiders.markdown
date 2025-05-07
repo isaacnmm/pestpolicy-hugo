@@ -7,6 +7,7 @@ categories:
 - Squirrels
 tags: []
 slug: /bug-bomb-for-spiders/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Spiders can be a real nuisance, especially when they start multiplying and hiding in every corner of your home. Regular sprays and traps might not cut it for a full-blown infestation.

@@ -6,6 +6,7 @@ categories:
 - Controllers
 tags: []
 slug: /best-joystick-for-elite-dangerous/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 Finding the best joystick for elite dangerous and

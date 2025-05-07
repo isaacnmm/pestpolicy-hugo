@@ -6,6 +6,7 @@ categories:
 - Tillers
 tags: []
 slug: /how-to-till-a-garden-without-a-tiller/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 The millennium-old practice of

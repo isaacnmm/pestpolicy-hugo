@@ -6,6 +6,7 @@ categories:
 - Digger
 tags: []
 slug: /best-pole-digger-for-rocky-soil/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 This is the ultimate tool for performing heavy-duty tasks for gardeners and landscaping enthusiasts seeking to make holes for erecting posts or planting trees.

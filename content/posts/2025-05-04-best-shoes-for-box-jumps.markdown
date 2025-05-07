@@ -6,6 +6,7 @@ categories:
 - HIIT Shoes
 tags: []
 slug: /best-shoes-for-box-jumps/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 The Best Shoes for Box Jumps are the

@@ -7,6 +7,7 @@ categories:
 - Roaches
 tags: []
 slug: /i-saw-one-cockroach-should-i-be-worried/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Whenever you spot a cockroach in your house, the first thing that might come to your mind is whether you might have a roach infestation. Well, roaches bring a host of negative effects to our homes and may cost hundreds of dollars to eradicate.

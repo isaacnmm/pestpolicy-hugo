@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /ant-control-in-everett/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Everett, a beautiful city nestled in the Pacific Northwest, is known for its scenic beauty and vibrant community. However, like many places, it is not immune to pest problems, particularly ants.

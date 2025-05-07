@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-poison-for-mouse/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 When dealing with a mouse infestation, choosing the right poison can make a significant difference. Below are some of the best poisons for effectively eliminating mice, ensuring your home stays rodent-free.

@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /can-i-clean-spray-gun-with-denatured-alcohol/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Cleaning your spray gun is essential to maintain its performance and prolong its lifespan. In this article, we'll explore the effectiveness of denatured alcohol as a cleaning solution for your spray gun, backed by reliable sources, and offer some valuable tips to ensure proper maintenance.

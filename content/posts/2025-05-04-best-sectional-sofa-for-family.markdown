@@ -7,6 +7,7 @@ categories:
 - Recliners
 tags: []
 slug: /best-sectional-sofa-for-family/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 A family sofa must withstand the chaos of daily life, from rambunctious kids to playful pets, while still looking stylish enough to anchor your living space. It should also be spacious and sturdy, offering ample seating for everyone to gather

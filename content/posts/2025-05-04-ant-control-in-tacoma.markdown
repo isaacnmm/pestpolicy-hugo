@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /ant-control-in-tacoma/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Ants, though small in size, can cause significant problems when they invade homes.

@@ -6,6 +6,7 @@ categories:
 - Mowers
 tags: []
 slug: /best-riding-lawn-mower-for-rough-terrain/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 Mowing a rugged lawn is not the most thrilling activity. But, with the excellent

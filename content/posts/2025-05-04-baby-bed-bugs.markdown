@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /baby-bed-bugs/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Baby bed bugs (simply nymphs) are the bed bugs going through the initial five stages of

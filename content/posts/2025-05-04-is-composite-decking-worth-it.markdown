@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /is-composite-decking-worth-it/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Besides deck design, deck materials are the most important feature that affects the outlook and style of your deck. The composite decks are mainly made from recycled plastic, sawdust, or wood chips.

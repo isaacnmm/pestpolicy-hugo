@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /can-fleas-live-in-human-hair/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 [Flea bites on humans](https://pestpolicy.com/do-fleas-bite-humans/)

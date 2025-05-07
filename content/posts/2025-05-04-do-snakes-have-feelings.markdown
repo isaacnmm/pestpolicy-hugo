@@ -7,6 +7,7 @@ categories:
 - Snakes
 tags: []
 slug: /do-snakes-have-feelings/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 [Snakes are reptiles](https://www.livescience.com/27845-snakes.html)

@@ -7,6 +7,7 @@ categories:
 - Spiders
 tags: []
 slug: /does-windex-kill-spiders/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 [Windex](https://en.wikipedia.org/wiki/Windex)

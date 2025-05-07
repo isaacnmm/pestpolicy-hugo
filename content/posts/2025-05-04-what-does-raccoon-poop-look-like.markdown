@@ -7,6 +7,7 @@ categories:
 - Raccoons
 tags: []
 slug: /what-does-raccoon-poop-look-like/
+lastmod: 2025-05-07T12:21:29+03:00
 ---
 
 Raccoons are nocturnal, thus it's difficult to spot them easily during the day. But,

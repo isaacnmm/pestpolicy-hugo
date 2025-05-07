@@ -6,6 +6,7 @@ categories:
 - Sprayers
 tags: []
 slug: /best-deck-stain-sprayer/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 The deck is an essential feature of your home like other investments and hence the need to maintain it to

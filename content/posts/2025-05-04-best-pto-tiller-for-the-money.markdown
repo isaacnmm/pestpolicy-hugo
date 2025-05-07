@@ -6,6 +6,7 @@ categories:
 - Tillers
 tags: []
 slug: /best-pto-tiller-for-the-money/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 I've reviewed the best PTO tiller for the money - an excellent tool for gardeners, homeowners, and farmers ready to rip off the hard and compact solid in their land or

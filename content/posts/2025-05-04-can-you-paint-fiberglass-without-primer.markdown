@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /can-you-paint-fiberglass-without-primer/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 When starting on a

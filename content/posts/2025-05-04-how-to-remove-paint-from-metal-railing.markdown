@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /how-to-remove-paint-from-metal-railing/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Home improvement project requires special attention if you have to attain the quality result.

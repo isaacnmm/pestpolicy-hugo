@@ -6,6 +6,7 @@ categories:
 - Soundbars
 tags: []
 slug: /best-soundbars-for-under-100/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 If you're looking for a

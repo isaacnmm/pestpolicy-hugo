@@ -8,6 +8,7 @@ categories:
 - Wasps
 tags: []
 slug: /wasp-nest-removal-in-bellevue-wa/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Wasp infestations can be a serious concern for homeowners and businesses in Bellevue, WA. These aggressive insects can pose significant health risks, especially if their nests are located near human activity.

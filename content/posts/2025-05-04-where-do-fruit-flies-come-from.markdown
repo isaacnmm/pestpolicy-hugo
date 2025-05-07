@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /where-do-fruit-flies-come-from/
+lastmod: 2025-05-07T12:21:29+03:00
 ---
 
 Could fruit flies have disturbed you in your place? Do you wonder where they may have come from or

@@ -8,6 +8,7 @@ categories:
 - Guide
 tags: []
 slug: /bed-bug-treatment-in-bellingham/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Bed bugs are a growing concern in Bellingham, WA, as these elusive pests can easily hitch a ride into homes and businesses, causing significant discomfort and anxiety.

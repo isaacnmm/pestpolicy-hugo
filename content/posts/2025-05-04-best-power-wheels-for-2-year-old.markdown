@@ -6,6 +6,7 @@ categories:
 - Guide
 tags: []
 slug: /best-power-wheels-for-2-year-old/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 Make your child’s playtime an exciting experience and one that they will remember all their life with the best power wheels for 2 year old.

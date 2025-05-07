@@ -6,6 +6,7 @@ categories:
 - Guide
 tags: []
 slug: /rectangular-vs-round-trampoline/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 In this article, we will look at Rectangular vs. Round Trampoline. Choosing the

@@ -6,6 +6,7 @@ categories:
 - Guide
 tags: []
 slug: /raspberry-pi-3-vs-2/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 The Raspberry Pi 3 and Raspberry Pi 2 are both popular single-board computers used for various projects, ranging from home automation to robotics and media centers. However, the Raspberry Pi 3 comes with several improvements over its predecessor, the Raspberry Pi 2. Let's compare both models in terms of key specifications and features to help you choose the right one for your needs.

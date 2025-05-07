@@ -7,6 +7,7 @@ categories:
 - Lizard
 tags: []
 slug: /what-do-chameleon-colors-mean/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Chameleons are famous for changing colors. A coat of many colors is a story about a little girl who had a coat that was not just one color. She takes it to church with her and everyone admires the colors.

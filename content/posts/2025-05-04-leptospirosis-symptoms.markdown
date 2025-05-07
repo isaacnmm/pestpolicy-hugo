@@ -6,6 +6,7 @@ categories:
 - Guide
 tags: []
 slug: /leptospirosis-symptoms/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Leptospirosis is a bacterial infection caused by the bacteria of the genus

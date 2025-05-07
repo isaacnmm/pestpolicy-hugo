@@ -7,6 +7,7 @@ categories:
 - Tillers
 tags: []
 slug: /best-rotavator-for-allotment/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 The best rotavator for allotments takes the sweat out of soil prep, turning hours of labor into minutes of effortless work. With powerful spinning blades that slice through compacted earth and

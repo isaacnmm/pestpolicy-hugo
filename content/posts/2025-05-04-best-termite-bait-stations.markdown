@@ -7,6 +7,7 @@ categories:
 - Termites
 tags: []
 slug: /best-termite-bait-stations/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 Termite bait stations provide an effective and convenient way of getting rid of termites from homes.

@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-to-find-bed-bugs/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 In this article, I'll outline how to find bed bugs - step-by-step -

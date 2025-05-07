@@ -6,6 +6,7 @@ categories:
 - Swing Sets
 tags: []
 slug: /best-swing-sets-for-small-yards/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 Are you looking for the Best Swing Sets for Small Yards? well, in this article I will provide a comprehensive guide on some of the high-rated swing sets that can fit perfectly in your small yard.

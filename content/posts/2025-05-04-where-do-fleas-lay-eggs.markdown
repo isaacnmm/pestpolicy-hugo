@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /where-do-fleas-lay-eggs/
+lastmod: 2025-05-07T12:21:29+03:00
 ---
 
 As a home- and pet owner, flea infestations are a real nuisance to

@@ -8,6 +8,7 @@ categories:
 - Rats
 tags: []
 slug: /rodent-control-in-bellevue/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Rodent infestations pose a serious threat to both residential and commercial properties in Bellevue, WA. With its mix of urban development and lush natural surroundings, Bellevue provides an ideal habitat for rodents such as rats and mice.

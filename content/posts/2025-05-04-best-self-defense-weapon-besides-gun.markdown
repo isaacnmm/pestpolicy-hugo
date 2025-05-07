@@ -6,6 +6,7 @@ categories:
 - Defense
 tags: []
 slug: /best-self-defense-weapon-besides-gun/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 Maybe you don’t fancy guns, or they are illegal (for the public) in your state. However, you still need

@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-ant-killer/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Hey folks! If you're battling an ant infestation, you know the struggle in the

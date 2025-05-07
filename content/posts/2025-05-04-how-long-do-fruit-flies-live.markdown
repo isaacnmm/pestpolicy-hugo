@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-long-do-fruit-flies-live/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Could you be asking yourself how long fruit flies live?

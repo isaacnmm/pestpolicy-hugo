@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-gopher-traps/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 When choosing the best gopher traps, you can consider things like

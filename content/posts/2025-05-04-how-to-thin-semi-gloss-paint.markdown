@@ -6,6 +6,7 @@ categories:
 - Guide
 tags: []
 slug: /how-to-thin-semi-gloss-paint/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Semi-gloss paint is a popular choice for high-traffic areas due to its durability, ease of cleaning, and attractive finish. However, there are instances when you might need to thin semi-gloss paint to achieve the right consistency for application. Thinning the paint can improve its flow and ease of application, especially when using it with a sprayer or in specific conditions. In this article, we will guide you through the process of thinning semi-gloss paint, the tools you will need, and tips for achieving the best results.

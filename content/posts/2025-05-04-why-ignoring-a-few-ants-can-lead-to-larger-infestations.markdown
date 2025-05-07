@@ -6,6 +6,7 @@ categories:
 - Ants
 tags: []
 slug: /why-ignoring-a-few-ants-can-lead-to-larger-infestations/
+lastmod: 2025-05-07T12:21:29+03:00
 ---
 
 Ants may seem like a minor nuisance when spotted individually, but ignoring even a few can quickly escalate into a larger infestation. Here’s why:

@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /home-remedies-for-bed-bugs/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 If a bed bug has ever bitten you, you will agree with me that these bloodsuckers instill painful injections that may even lead to allergic or abnormal swelling.

@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /paint-color-ideas-for-outside-of-house/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Painting your newly constructed home will not only improve its outlook impression, but also boosts the overall service life. Selecting color for house exterior may be cumbersome and challenging.

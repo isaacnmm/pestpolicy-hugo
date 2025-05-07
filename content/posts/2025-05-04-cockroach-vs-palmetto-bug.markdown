@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /cockroach-vs-palmetto-bug/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Cockroach Vs. Palmetto Bug - when people say the word cockroach, they are ordinarily using a familiar name to refer to two types of insects from the same family.

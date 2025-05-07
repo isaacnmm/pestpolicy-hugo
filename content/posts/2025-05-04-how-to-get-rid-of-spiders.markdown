@@ -7,6 +7,7 @@ categories:
 - Spiders
 tags: []
 slug: /how-to-get-rid-of-spiders/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Spiders will have many benefits, as a homeowner, in your garden including preying on other dangerous insects. But why are spiders among the most loathed pests in the world?

@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-to-get-rid-of-pine-bark-beetles/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Pine bark beetles are tiny (rice-grain-sized) invasive bugs that'll get into the bark of your pine trees and eat it. Eating the inner bark blocks the passage of food and water - making the trees weaken and die off.

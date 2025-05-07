@@ -7,6 +7,7 @@ categories:
 - Raccoons
 tags: []
 slug: /how-to-trap-raccoons/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 ![](/assets/img/img/)

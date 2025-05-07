@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /bed-bugs-vs-roaches/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 If there are pests in your house that look like

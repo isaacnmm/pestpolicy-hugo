@@ -7,6 +7,7 @@ categories:
 - Home Decor
 tags: []
 slug: /12-chic-eco-friendly-decor-ideas-that-will-save-the-planet-and-your-wallet/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Transform your living space into an eco-friendly sanctuary with these 12 stylish decor ideas.

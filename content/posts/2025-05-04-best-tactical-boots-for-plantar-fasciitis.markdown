@@ -6,6 +6,7 @@ categories:
 - Work Shoes
 tags: []
 slug: /best-tactical-boots-for-plantar-fasciitis/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 The Best Tactical Boots for Plantar Fasciitis should provide you enough support and comfort to deal with plantar fasciitis flare-ups. Hence, I will review top tactical boots to consider for your plantar fasciitis pain.

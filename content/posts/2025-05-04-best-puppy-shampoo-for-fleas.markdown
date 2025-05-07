@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-puppy-shampoo-for-fleas/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 In this guide, we review the best puppy shampoos for combating fleas. Puppies, like newborns, need gentle care, especially regarding grooming.

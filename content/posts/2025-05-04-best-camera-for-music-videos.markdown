@@ -6,6 +6,7 @@ categories:
 - Cameras
 tags: []
 slug: /best-camera-for-music-videos/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Which is the best camera for music videos? Professional-level

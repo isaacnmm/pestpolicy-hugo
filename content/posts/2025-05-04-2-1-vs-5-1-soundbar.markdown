@@ -7,6 +7,7 @@ categories:
 - Soundbars
 tags: []
 slug: /2-1-vs-5-1-soundbar/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 When it comes to home entertainment systems, soundbars have become a popular choice for enhancing audio quality without the complexity of a full surround sound system.

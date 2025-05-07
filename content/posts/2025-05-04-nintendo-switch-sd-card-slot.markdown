@@ -6,6 +6,7 @@ categories:
 - Controllers
 tags: []
 slug: /nintendo-switch-sd-card-slot/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Today I'll take a peek at how to install your micro SD card on the

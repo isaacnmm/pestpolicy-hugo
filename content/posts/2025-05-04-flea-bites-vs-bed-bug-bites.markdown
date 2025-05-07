@@ -8,6 +8,7 @@ categories:
 - Guide
 tags: []
 slug: /flea-bites-vs-bed-bug-bites/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 The small red bumps appearing in specific areas of your skin can be hard to tell apart. We’ll tell you how to figure out whether they’re flea bites or

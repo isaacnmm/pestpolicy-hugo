@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /flea-life-cycle/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 The flea life cycle consists of four stages: egg, flea larva, pupa, and the adult. Fleas will live from a few weeks to several months given optimal humidity and temperature (70 percent and 70–85°F).

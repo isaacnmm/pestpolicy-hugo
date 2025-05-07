@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /can-bed-bugs-bite-through-clothing/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 "Wear long-sleeved clothes, and you’ll be safe from bed bug bites (Cimex lectularius Linnaeus)." Maybe, maybe not. But bed bug bites are painful and will cause anemia. So, you're wondering, can bed bugs bite through clothing?

@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /best-paint-brushes-for-watercolor/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 What brings joy to an artist than the thought of owning the best paintbrushes for watercolor jobs? He can paint the whole world for you if not your imaginations.

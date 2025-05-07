@@ -6,6 +6,7 @@ categories:
 - Tillers
 tags: []
 slug: /best-tiller-for-roots/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 I've reviewed the best tiller for roots - including for chopping roots, weeds, or loosen soil and

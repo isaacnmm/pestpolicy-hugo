@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-to-get-rid-of-fleas-on-clothes-and-bedding/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Fleas hiding in clothes and bedding cause disastrous effects - like intense and annoying itching and may transmit diseases like

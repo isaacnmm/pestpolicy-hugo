@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-to-get-rid-of-carpenter-bees-without-killing-them/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Unlike bumble/honey bees, carpenter bees do more than just carry out pollination - they bore woods and create nests. Also,

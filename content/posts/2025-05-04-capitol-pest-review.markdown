@@ -6,6 +6,7 @@ categories:
 - Guide
 tags: []
 slug: /capitol-pest-review/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Capitol Pest is a pest control company that specializes in providing reliable and effective solutions to a variety of pest problems. With years of experience in the industry, Capitol Pest has earned a reputation for offering quality services to homeowners and businesses alike. This review will discuss the company's services, pricing, customer satisfaction, and overall performance to help you determine whether Capitol Pest is the right choice for your pest control needs.

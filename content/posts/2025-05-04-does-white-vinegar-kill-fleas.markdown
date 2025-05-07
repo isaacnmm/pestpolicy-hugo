@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /does-white-vinegar-kill-fleas/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Vinegar is a common household ingredient that you will find around the kitchen but it can also have varied applications around the house.

@@ -7,6 +7,7 @@ categories:
 - Moths
 tags: []
 slug: /what-are-small-brown-insects-in-my-kitchen/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 What are

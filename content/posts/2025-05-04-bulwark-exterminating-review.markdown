@@ -6,6 +6,7 @@ categories:
 - Exterminators
 tags: []
 slug: /bulwark-exterminating-review/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Pest and bug infestations sometimes may overwhelm you and your pets.

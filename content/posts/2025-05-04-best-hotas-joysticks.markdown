@@ -6,6 +6,7 @@ categories:
 - Controllers
 tags: []
 slug: /best-hotas-joysticks/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 Regular gamepads will be amazing for racers while the keyboard-mouse combination is snappy in-flight games, you'll enjoy acquiring the Best Hotas Joysticks for aircraft control.

@@ -7,6 +7,7 @@ categories:
 - Swing Sets
 tags: []
 slug: /best-wooden-swing-set-reviews/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Are you one of those parents that are struggling to get your kids out to play? Or one that kids want to truly get out but there is no play equipment in their yard to keep them entertained?

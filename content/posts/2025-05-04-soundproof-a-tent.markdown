@@ -6,6 +6,7 @@ categories:
 - Soundproofing
 tags: []
 slug: /soundproof-a-tent/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 If you are having trouble with your tent not being as quiet as you wish then do not threaten as I know some amazing ideas which will help reduce the noise - soundproof a tent.

@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /does-peppermint-oil-kill-bed-bugs/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Current research shows that essential oils have antiseptic, antifungal, & antibacterial properties. But which one really does

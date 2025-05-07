@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /what-animals-eat-cockroaches/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 There are some know cockroach predators that can help you keep off those

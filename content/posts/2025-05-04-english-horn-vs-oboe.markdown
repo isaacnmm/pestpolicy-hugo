@@ -6,6 +6,7 @@ categories:
 - Recording
 tags: []
 slug: /english-horn-vs-oboe/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 I was not always a woodwind player but I was thinking of the difference & similarities between English Horn (Cor Anglais) and

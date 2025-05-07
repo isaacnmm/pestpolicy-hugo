@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /best-paint-brushes-for-edging/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 As a painter, you must have experienced some of the common challenges associated with painting edges. Did you know that such problems usually arise because of using the wrong paintbrush?

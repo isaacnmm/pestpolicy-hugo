@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-long-does-it-take-for-steam-to-kill-fleas/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Fleas will attack your

@@ -7,6 +7,7 @@ categories:
 - Paint
 tags: []
 slug: /how-to-paint-stucco/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Owning a Stucco home will not only make you stand out among others but also boost your self-esteem. However, painting Stucco

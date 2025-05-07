@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-flea-collar-for-dogs/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Are you searching for the best flea collar to keep your dog free from pesky fleas and ticks?

@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /spider-bite-vs-bed-bug-bite/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Have you ever woken up with a bite/s on your body and wondered what could be the cause? The worst arises when you imagine having a bedbug or a

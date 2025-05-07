@@ -6,6 +6,7 @@ categories:
 - Raspberry Pi 3
 tags: []
 slug: /raspberry-pi-3-b-review/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 There is so much fun in DIY Raspberry Pi projects, such as security cameras and digital weather stations.

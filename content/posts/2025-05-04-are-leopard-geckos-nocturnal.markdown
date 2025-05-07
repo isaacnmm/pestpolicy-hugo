@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /are-leopard-geckos-nocturnal/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Leopard geckos are terrestrial animals that mostly live on the ground and under rocks. Naturally, you will find them in the Middle East and Asia in countries like Iran, Afghanistan and India. So,

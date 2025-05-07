@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /capstar-flea-tablets-for-small-dogs/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Capstar tablets are

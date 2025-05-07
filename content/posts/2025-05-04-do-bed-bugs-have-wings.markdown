@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /do-bed-bugs-have-wings/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Do

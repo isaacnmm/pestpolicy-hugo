@@ -6,6 +6,7 @@ categories:
 - Mowers
 tags: []
 slug: /best-heavy-duty-flail-mower-for-atv/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 You will love the versatility of AVTs. Besides using them for fun, their versatility makes them useful when it comes to hauling towing, and mowing -

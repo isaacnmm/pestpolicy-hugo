@@ -6,6 +6,7 @@ categories:
 - Mics
 tags: []
 slug: /best-wireless-mic-for-iphone/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 The best wireless mic for iPhone will help you to easily record your podcasts,

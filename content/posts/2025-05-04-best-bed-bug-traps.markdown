@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-bed-bug-traps/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Bed bugs will often hide in mattresses and come out at night to suck your blood.

@@ -6,6 +6,7 @@ categories:
 - Controllers
 tags: []
 slug: /elite-dangerous-mods/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 I've learned how to make Elite Dangerous better with mods, apps, and tweaks. Frontier was developed as a space simulator which is amazingly big.

@@ -7,6 +7,7 @@ categories:
 - Lizard
 tags: []
 slug: /house-lizard-lifespan/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 House Lizard Lifespan - Probably you have come across the house lizard (commonly known as house gecko) in your house, yard, compound or zoo and wonder how long

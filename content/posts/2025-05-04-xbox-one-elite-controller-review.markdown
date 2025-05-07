@@ -6,6 +6,7 @@ categories:
 - Controllers
 tags: []
 slug: /xbox-one-elite-controller-review/
+lastmod: 2025-05-07T12:21:29+03:00
 ---
 
 [Xbox One Elite](https://www.amazon.com/dp/B00ZDNNRB8/?tag=p-policy-20)

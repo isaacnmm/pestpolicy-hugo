@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-long-does-it-take-to-break-the-flea-life-cycle/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 By breaking the flea life cycle, you will not only prevent further growth but also terminate breeding progress from that particular stage;

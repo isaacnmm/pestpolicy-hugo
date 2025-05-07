@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /best-paint-brushes-for-latex-paint/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 For the best results over repeated use, you need a brush to maintain its shape and stiffness without compromising smoothness and evenness. Homeowners require

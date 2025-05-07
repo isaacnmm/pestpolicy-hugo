@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /best-primer-for-kitchen-cabinets/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 Are you looking to facelift your

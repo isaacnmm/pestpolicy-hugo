@@ -7,6 +7,7 @@ categories:
 - Squirrels
 tags: []
 slug: /do-squirrels-attack-humans/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Summertime in many parts of the World including the United States such as in Washington, D.C., largely experiences an upsurge of squirrels -

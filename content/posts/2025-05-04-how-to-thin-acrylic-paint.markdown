@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /how-to-thin-acrylic-paint/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 The paint application process doesn’t only require a professional painter; having well-thinned paint is crucial in attaining the best quality paint finish.

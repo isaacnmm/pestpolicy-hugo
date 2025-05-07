@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /do-chipmunks-live-underground/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 [Chipmunks](https://extension.psu.edu/chipmunks)

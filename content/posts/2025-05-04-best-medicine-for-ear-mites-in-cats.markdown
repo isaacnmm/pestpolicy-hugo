@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-medicine-for-ear-mites-in-cats/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 Cats who spend most of the time outdoors are more likely to get ear mites.

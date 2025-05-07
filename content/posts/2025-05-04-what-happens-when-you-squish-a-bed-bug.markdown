@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /what-happens-when-you-squish-a-bed-bug/
+lastmod: 2025-05-07T12:21:29+03:00
 ---
 
 I answer this question:

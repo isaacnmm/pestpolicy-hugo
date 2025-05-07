@@ -6,6 +6,7 @@ categories:
 - Guitar
 tags: []
 slug: /best-bass-octave-pedals/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 In this post, I've reviewed the best bass octave pedals below. A bass octave pedal functions by creating a blended signal based on the original analog input.

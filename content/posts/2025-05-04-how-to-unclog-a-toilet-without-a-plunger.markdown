@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-to-unclog-a-toilet-without-a-plunger/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Sometimes toilets will clog ceaselessly. Thus, your "bank deposits" will float as the water level rises. A plunger would be a

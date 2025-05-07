@@ -6,6 +6,7 @@ categories:
 - Soundbars
 tags: []
 slug: /best-soundbar-under-200/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 If you're on a tight budget (under $200), pick one of these best soundbars under 200 for home theater or TV to get better sound for TV shows or movies away from the poor built-in TV speakers.

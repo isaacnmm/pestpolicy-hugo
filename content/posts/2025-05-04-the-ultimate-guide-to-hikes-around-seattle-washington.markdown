@@ -8,6 +8,7 @@ categories:
 - Seattle
 tags: []
 slug: /the-ultimate-guide-to-hikes-around-seattle-washington/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Seattle is surrounded by a plethora of stunning hiking destinations that offer diverse landscapes and experiences.

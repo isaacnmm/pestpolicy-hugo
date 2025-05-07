@@ -7,6 +7,7 @@ categories:
 - Mosquitoes
 tags: []
 slug: /are-plug-in-mosquito-repellents-safe/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Mosquito repellent plugins are the most reliable way of keeping mosquitoes at bay.

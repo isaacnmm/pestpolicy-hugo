@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /what-is-latex-paint-used-for/
+lastmod: 2025-05-07T12:21:29+03:00
 ---
 
 Various types of paints are manufactured in certain forms and concentrations in order to serve a given purpose. Perhaps you have come across latex in your place and wonder where it’s best used for. Can latex paint be applied to concrete or furniture?

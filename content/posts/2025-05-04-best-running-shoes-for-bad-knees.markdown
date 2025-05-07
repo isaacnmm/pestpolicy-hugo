@@ -6,6 +6,7 @@ categories:
 - Guide
 tags: []
 slug: /best-running-shoes-for-bad-knees/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 Are you looking for the best running shoes for bad knees or

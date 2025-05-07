@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /what-grit-sandpaper-for-primer-before-paint/
+lastmod: 2025-05-07T12:21:29+03:00
 ---
 
 Surfaces such as rust metal require coarse grip sandpaper (

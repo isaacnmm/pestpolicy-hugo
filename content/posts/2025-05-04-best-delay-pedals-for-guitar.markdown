@@ -6,6 +6,7 @@ categories:
 - Guitar
 tags: []
 slug: /best-delay-pedals-for-guitar/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 What's the Best Delay Pedals for Guitar? Ever witnessed a hot debate among guitar players? Well, just make your opinion about the “best delay pedal”.

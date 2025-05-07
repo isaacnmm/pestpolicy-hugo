@@ -7,6 +7,7 @@ categories:
 - Squirrels
 tags: []
 slug: /how-long-do-squirrels-live/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Have you come across squirrels in your garden? But do you ever ask yourself how long do squirrels live? Did you know that there are different species of squirrels (

@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /can-you-paint-over-rust/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 *Well, YES, you can effectively spray paint over rust. But treat the rusted metal surfaces (using a wire brush), clean with a lint-free rag, sand gently, and clean with water plus soap before painting. *

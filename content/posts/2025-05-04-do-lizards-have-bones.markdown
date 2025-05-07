@@ -7,6 +7,7 @@ categories:
 - Lizard
 tags: []
 slug: /do-lizards-have-bones/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Probably you have come across various species of lizards in your home, compound, fields, yards, or zoo and wonder if they have bones. How then are their body muscles supported?  So,

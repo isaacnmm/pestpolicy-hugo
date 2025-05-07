@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /can-humans-carry-fleas-from-one-home-to-another/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Fleas are tiny pests that primarily infest dogs and cats, feeding on their blood and causing itching, allergies, and even diseases. But what about humans?

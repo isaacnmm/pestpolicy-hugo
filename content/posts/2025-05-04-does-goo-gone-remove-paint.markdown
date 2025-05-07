@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /does-goo-gone-remove-paint/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Paint removal has been a big challenge for the home user. People have come up with many ways of cleaning paint from various surfaces. Though someway have worked, others leave permanent stains behind. Could you be having a similar challenge? Have you seen or heard about Goo Gone!

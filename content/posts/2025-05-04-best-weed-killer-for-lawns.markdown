@@ -7,6 +7,7 @@ categories:
 - Weeds
 tags: []
 slug: /best-weed-killer-for-lawns/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 When choosing the

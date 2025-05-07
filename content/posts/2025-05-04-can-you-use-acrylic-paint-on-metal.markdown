@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /can-you-use-acrylic-paint-on-metal/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Metal surfaces could be coated with paint for various purposes. You may often want to improve its aesthetic value, prevent rusting, or even boost the primary material's service life. Could you be planning to paint your metal surface and wonders, which paint to use?

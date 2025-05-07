@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /best-spray-paints-for-plastic/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 The best spray paints for plastic will entirely transform the look and feel of your plastic objects or household items.

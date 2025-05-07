@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /bengal-roach-spray-review/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 In this article, I've reviewed the Bengal Roach Spray - this will help you control roaches forever.

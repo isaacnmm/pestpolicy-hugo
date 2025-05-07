@@ -7,6 +7,7 @@ categories:
 - Spiders
 tags: []
 slug: /what-kills-spiders-instantly/
+lastmod: 2025-05-07T12:21:29+03:00
 ---
 
 This question of what kills spiders instantly is very tricky. Why

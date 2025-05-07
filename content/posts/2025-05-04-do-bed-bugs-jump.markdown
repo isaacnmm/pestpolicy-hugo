@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /do-bed-bugs-jump/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 There’s a common belief that

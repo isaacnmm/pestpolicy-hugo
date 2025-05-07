@@ -6,6 +6,7 @@ categories:
 - Raspberry Pi 3
 tags: []
 slug: /nintendo-switch-sd-card/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Nintendo Switch Devices on Amazon bundles their device with only a 32GB storage space on the purchase, which is inadequate for additional eShop games, game and system updates, and game patches.

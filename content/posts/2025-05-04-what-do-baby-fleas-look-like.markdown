@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /what-do-baby-fleas-look-like/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 What do baby fleas look like? Check these baby flea (larvae) videos, images, and pictures - check their color and size.

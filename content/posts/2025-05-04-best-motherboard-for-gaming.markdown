@@ -6,6 +6,7 @@ categories:
 - Motherboards
 tags: []
 slug: /best-motherboard-for-gaming/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 The best motherboard for gaming is truly the unrecognized hero in PC gaming.

@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-to-seal-painted-wood-for-outdoor-use/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Sealing wood for outdoor use is critical since most sealants contain active agents and UV-rays blockers that protect the wood from fading and aging. Perhaps you intend to seal your outdoor painted wood or structure and wonder how to go about it?

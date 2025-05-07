@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /how-to-paint-an-aluminum-boat/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Aluminium boats are great for fishing as they're durable and lightweight. But, sometimes, they may get abused or overused. So, in this post, I'll take you through how to

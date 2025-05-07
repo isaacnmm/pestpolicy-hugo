@@ -6,6 +6,7 @@ categories:
 - Uncategorized
 tags: []
 slug: /can-you-paint-fiberglass-with-a-brush/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 If you've come here wondering whether you can paint fiberglass with a brush, you're in the right place. As you ponder how to give your fiberglass items a fresh, new look, I've done the research for you to provide a clear and straightforward answer.

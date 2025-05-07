@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /bed-bug-life-cycle/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Bed bugs are reddish-brown and nocturnal insects that suck blood from warm-blooded animals including humans - you’ll find them in hotel rooms or in the house.

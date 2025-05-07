@@ -6,6 +6,7 @@ categories:
 - Guide
 tags: []
 slug: /enamel-vs-latex-paint/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 When it comes to painting your home or project, choosing the right type of paint can make a big difference in the final result. Two of the most common types of paint are enamel and latex paint. In this article, we will compare enamel paint and latex paint to help you decide which one is best for your needs.

@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /best-undercoat-paint/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 One of the reasons why you will end up having uneven painting is a failure to have the right undercoat. Before you go for that paint, you need to first establish the best undercoat paint to match it.

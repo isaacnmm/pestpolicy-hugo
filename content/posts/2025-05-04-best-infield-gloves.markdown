@@ -6,6 +6,7 @@ categories:
 - Shoes
 tags: []
 slug: /best-infield-gloves/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 Being the best infielder you are, you'll need to make lightning-fast plays. The line drives and grounders must not stand a chance when you have the Best Infield Gloves.

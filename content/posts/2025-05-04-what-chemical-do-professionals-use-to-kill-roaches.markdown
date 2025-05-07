@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /what-chemical-do-professionals-use-to-kill-roaches/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 It is critical to target the right places using the correct products while trying to

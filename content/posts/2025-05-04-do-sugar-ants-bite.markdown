@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /do-sugar-ants-bite/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Sugar Ants are little brown and black insects with semi-transparent bodies that invade homes, ceilings, walls, and kitchen. But, do Sugar Ants Bite?

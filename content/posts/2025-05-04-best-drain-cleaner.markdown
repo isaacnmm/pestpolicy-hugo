@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-drain-cleaner/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Clogged drains can be a real hassle, causing foul odors, gurgling water, and overflowing sinks.

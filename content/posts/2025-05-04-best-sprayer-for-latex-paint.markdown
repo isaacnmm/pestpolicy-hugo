@@ -6,6 +6,7 @@ categories:
 - Sprayers
 tags: []
 slug: /best-sprayer-for-latex-paint/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 What’s the best sprayer for latex paint? Paint sprayers are preferable because they allow you to cover the surface with paint quickly and with relative ease.

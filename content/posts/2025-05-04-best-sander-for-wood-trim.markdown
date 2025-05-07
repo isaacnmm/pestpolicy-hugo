@@ -6,6 +6,7 @@ categories:
 - Sprayers
 tags: []
 slug: /best-sander-for-wood-trim/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 By reading this article on the best sander for wood trim, you will get an efficient machine that helps cut down damage and power consumption costs.

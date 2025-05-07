@@ -7,6 +7,7 @@ categories:
 - Squirrels
 tags: []
 slug: /how-to-get-rid-of-squirrels-in-the-yard/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 *Below I've outlined h*

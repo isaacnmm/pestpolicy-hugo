@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-to-remove-acrylic-paint-from-concrete/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Today's question came from Jake, one of our avid painting blog readers. The question relates to; how to remove acrylic paint from

@@ -6,6 +6,7 @@ categories:
 - Work Shoes
 tags: []
 slug: /best-dress-shoes-for-back-pain/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Wearing the Best Dress Shoes For Back Pain can make your workdays comfortable and bearable.

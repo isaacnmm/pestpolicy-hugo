@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-flea-combs-for-dogs/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 So, which is the best flea combs for dogs? Flea combs provide one of the safest means of controlling fleas in pets such as dogs.

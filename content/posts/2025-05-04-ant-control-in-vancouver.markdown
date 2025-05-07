@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /ant-control-in-vancouver/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Ant infestations are a common issue for homeowners and businesses in Vancouver, particularly during the warmer months.

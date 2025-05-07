@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /what-does-roach-poop-look-like/
+lastmod: 2025-05-07T12:21:29+03:00
 ---
 
 What does roach poop look like? Cockroaches will leave their droppings almost anywhere they pass through. The droppings are typically found in damp areas and near sources of food.

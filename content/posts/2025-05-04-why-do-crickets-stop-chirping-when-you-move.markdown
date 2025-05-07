@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /why-do-crickets-stop-chirping-when-you-move/
+lastmod: 2025-05-07T12:21:29+03:00
 ---
 
 Have you ever noticed that

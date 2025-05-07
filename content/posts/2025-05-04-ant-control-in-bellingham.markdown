@@ -8,6 +8,7 @@ categories:
 - Guide
 tags: []
 slug: /ant-control-in-bellingham/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Ant infestations are a common problem in Bellingham, WA, especially during the warmer months. These

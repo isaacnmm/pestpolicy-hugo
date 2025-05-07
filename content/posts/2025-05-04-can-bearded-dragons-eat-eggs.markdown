@@ -7,6 +7,7 @@ categories:
 - Lizard
 tags: []
 slug: /can-bearded-dragons-eat-eggs/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Eggs constitute a major part of the human diet - most of us love them just like

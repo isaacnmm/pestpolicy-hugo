@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /how-many-coats-of-paint-on-a-fiberglass-boat/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 *When it comes to painting a fiberglass boat, it's essential to ensure proper protection and aesthetics. Many boat owners wonder how many coats of paint are necessary to achieve the best results. In this article, we'll delve into this question, providing you with the information you need to properly paint your fiberglass boat.*

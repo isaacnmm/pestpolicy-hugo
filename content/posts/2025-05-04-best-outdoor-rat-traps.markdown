@@ -7,6 +7,7 @@ categories:
 - Rats
 tags: []
 slug: /best-outdoor-rat-traps/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 You don’t realize the importance of a rat trap until you see a rodent running around in your garden or backyard. You cannot possibly

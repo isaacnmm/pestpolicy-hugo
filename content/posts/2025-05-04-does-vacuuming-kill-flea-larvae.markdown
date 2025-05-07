@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /does-vacuuming-kill-flea-larvae/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 As a homeowner, I've at one time been disturbed by household fleas and I was required to take quick and effective steps to control them - including vacuuming and heat treatment?

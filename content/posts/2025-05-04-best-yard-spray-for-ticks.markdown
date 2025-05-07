@@ -7,6 +7,7 @@ categories:
 - Ticks
 tags: []
 slug: /best-yard-spray-for-ticks/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Seeking for the best yard spray for ticks? Search no more! But first, what damage have

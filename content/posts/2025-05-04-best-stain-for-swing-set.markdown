@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-stain-for-swing-set/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 Getting a good stain will help to protect your

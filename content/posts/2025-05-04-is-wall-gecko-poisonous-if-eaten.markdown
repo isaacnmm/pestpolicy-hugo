@@ -7,6 +7,7 @@ categories:
 - Lizard
 tags: []
 slug: /is-wall-gecko-poisonous-if-eaten/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Probably your home, yard, field, or zoo is full of

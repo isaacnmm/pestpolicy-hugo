@@ -7,6 +7,7 @@ categories:
 - Moths
 tags: []
 slug: /what-causes-pantry-bugs/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Does the presence of pantry bugs worry you? I also get scared of them. Though their presence is inevitable we can try to find the root cause of what causes pantry bugs.

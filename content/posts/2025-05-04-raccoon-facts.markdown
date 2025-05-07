@@ -7,6 +7,7 @@ categories:
 - Raccoons
 tags: []
 slug: /raccoon-facts/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Whether your home is surrounded by trees or skyscrapers, raccoons are likely a part of the wildlife population in your area.

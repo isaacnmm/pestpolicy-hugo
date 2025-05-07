@@ -6,6 +6,7 @@ categories:
 - Guitar
 tags: []
 slug: /best-short-scale-electric-guitars/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 If you are a kid, a player with petite hands or a traveler wishing to play the guitar - the best short scale electric guitars more playable.

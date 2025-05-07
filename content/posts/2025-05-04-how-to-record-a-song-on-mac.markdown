@@ -6,6 +6,7 @@ categories:
 - Laptops
 tags: []
 slug: /how-to-record-a-song-on-mac/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Below I outline how to record a song on

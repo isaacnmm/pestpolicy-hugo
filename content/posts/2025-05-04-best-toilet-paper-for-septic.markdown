@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-toilet-paper-for-septic/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 Some toilet papers are low quality, non-biodegradable, and may end up

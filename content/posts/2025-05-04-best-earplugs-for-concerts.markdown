@@ -6,6 +6,7 @@ categories:
 - Headphones
 tags: []
 slug: /best-earplugs-for-concerts/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 In this post, I've reviewed the best earplugs for concerts. It's no secret that regular noise-reduction

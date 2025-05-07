@@ -6,6 +6,7 @@ categories:
 - Motherboards
 tags: []
 slug: /best-motherboard-for-i5-6600k/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 i5 6600k CPU i5 processors come with 3.5 GHz 4 cores, which takes lower energy and allows 4k resolution, particularly for gaming and content creation purposes.

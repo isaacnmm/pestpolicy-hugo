@@ -6,6 +6,7 @@ categories:
 - Laptops
 tags: []
 slug: /best-sound-cards-for-music-production/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 In this post, I've reviewed the best sound cards for music production.

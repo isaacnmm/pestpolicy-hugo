@@ -6,6 +6,7 @@ categories:
 - Acoustic Guitars
 tags: []
 slug: /best-acoustic-guitar-under-500/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Do you need to play country and blues, you'll benefit from the best acoustic guitar under 500? Maybe you need a cheap acoustic guitar that'll spice up your career?

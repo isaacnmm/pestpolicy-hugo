@@ -6,6 +6,7 @@ categories:
 - Backyard Games
 tags: []
 slug: /how-to-build-a-backyard-train/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 In this article, I will provide a straightforward guide on how to build a Backyard Train. If building a train in your backyard has been your dream for some time now I got you covered.

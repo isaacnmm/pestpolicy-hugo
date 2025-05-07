@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-big-are-bed-bugs/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 How big are bed bugs? Bed bug bites are painful and

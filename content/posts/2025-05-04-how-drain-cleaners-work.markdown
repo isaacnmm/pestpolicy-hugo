@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-drain-cleaners-work/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Cooking oil, hair, scum, soap, slime, and sludge can block drains leading to water obstruction or blockage.

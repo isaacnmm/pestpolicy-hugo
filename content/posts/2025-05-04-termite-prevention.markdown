@@ -7,6 +7,7 @@ categories:
 - Termites
 tags: []
 slug: /termite-prevention/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 In this article, I've outlined some termite prevention tips to help protect your structures from termites.

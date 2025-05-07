@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /can-i-sand-my-deck-by-hand/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 If you're a homeowner with a

@@ -6,6 +6,7 @@ categories:
 - Soundbars
 tags: []
 slug: /soundbar-optical-vs-hdmi/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Is Soundbar optical vs HDMI - digital-audio? Connecting your

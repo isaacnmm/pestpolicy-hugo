@@ -7,6 +7,7 @@ categories:
 - Studio
 tags: []
 slug: /best-bass-amps-for-beginners/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 If you're starting off in music, choosing the best bass amps for beginners or

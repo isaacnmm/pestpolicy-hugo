@@ -8,6 +8,7 @@ categories:
 - Guide
 tags: []
 slug: /a-guide-to-preventing-pest-infestations-in-restaurants/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Pests can be a major issue for restaurants, potentially leading to health code violations, reputation damage, and financial losses.

@@ -6,6 +6,7 @@ categories:
 - Tillers
 tags: []
 slug: /best-trimmer-line/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 There are numerous tools for maintaining a properly landscaped lawn but few are as efficient as the trimmer line.

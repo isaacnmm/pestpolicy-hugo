@@ -6,6 +6,7 @@ categories:
 - Recording
 tags: []
 slug: /jordan-bartee-at-the-calarts-machine-lab/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Jordan Bartee is a renowned innovator and creative force in the field of digital arts and design. His work at the CalArts Machine Lab highlights his dedication to merging technology with artistic expression, creating groundbreaking projects that challenge conventional boundaries.

@@ -6,6 +6,7 @@ categories:
 - Mics
 tags: []
 slug: /best-microphone-for-recording-vocals/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 For a beginner considering

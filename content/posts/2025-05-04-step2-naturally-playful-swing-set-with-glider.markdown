@@ -7,6 +7,7 @@ categories:
 - Swing Sets
 tags: []
 slug: /step2-naturally-playful-swing-set-with-glider/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 If you're looking for a swing set that will keep your kids entertained while also accommodating their friends for endless outdoor fun, the

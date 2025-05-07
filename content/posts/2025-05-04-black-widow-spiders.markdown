@@ -7,6 +7,7 @@ categories:
 - Spiders
 tags: []
 slug: /black-widow-spiders/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Black widow spiders come in 5 species and they are mainly found in the northern and southern (in the United States) and they inhabit areas like the grasslands, deserts, and forests.

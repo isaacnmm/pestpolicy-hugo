@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /is-it-halal-to-eat-crickets/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Dietary choices in Islam are deeply rooted in the principles of halal (permissible) and haram (forbidden) as prescribed by Islamic jurisprudence. These principles guide Muslims in their food selections, ensuring that what they consume aligns with their religious beliefs.

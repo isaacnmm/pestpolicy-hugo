@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-often-should-you-repaint-interior-walls/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Repainting your interior walls is more than just a cosmetic update—it’s a vital part of home maintenance that preserves your space’s appeal and structural integrity. The frequency of repainting depends on numerous factors

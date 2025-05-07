@@ -7,6 +7,7 @@ categories:
 - Lizard
 tags: []
 slug: /red-eyed-crocodile-skink-care/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 There are many "expert" ideas on how to take care of your Red-Eyed Crocodile Skink - but in this article, I outline my red-eyed crocodile skink care guide - the 5 -years of experience of caring for and breeding for these reptile species.

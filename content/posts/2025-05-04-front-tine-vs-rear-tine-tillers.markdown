@@ -6,6 +6,7 @@ categories:
 - Tillers
 tags: []
 slug: /front-tine-vs-rear-tine-tillers/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 A tiller will help you in turning and aerating the soil in your vegetable garden or farm.

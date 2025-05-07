@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /best-paint-for-outdoor-wood-furniture/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 The best paint for outdoor wood furniture and outdoor decks can be sprayed using your

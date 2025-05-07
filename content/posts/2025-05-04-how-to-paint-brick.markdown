@@ -7,6 +7,7 @@ categories:
 - Paint
 tags: []
 slug: /how-to-paint-brick/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Perhaps you own a brick home or a

@@ -6,6 +6,7 @@ categories:
 - Controllers
 tags: []
 slug: /best-flight-simulator-yoke/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 There has been increased innovation and upgrades in modern gaming devices such as the best flight simulator yoke, mainly aiming to achieve more realism in virtual piloting.

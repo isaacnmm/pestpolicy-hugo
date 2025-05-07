@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /can-bed-bugs-survive-in-water/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 But can bed bugs survive in water? Washing clothes, bedding, and curtains regularly are perceived as one way of containing bed bugs. Washing is especially useful when you use water together with an effective bleach.

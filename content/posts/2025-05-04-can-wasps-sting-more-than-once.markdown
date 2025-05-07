@@ -7,6 +7,7 @@ categories:
 - Wasps
 tags: []
 slug: /can-wasps-sting-more-than-once/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Being a victim of a

@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /how-to-paint-wood-texture-with-acrylics/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Painting wood texture with acrylics may at times be a cumbersome task if the wrong approach is undertaken.

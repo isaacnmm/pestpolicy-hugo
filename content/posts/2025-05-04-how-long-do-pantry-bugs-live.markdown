@@ -7,6 +7,7 @@ categories:
 - Moths
 tags: []
 slug: /how-long-do-pantry-bugs-live/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 To understand how long pantry bugs live, you have to first understand their life cycles. Different pantry bugs have a different life span and so is their life cycles.

@@ -7,6 +7,7 @@ categories:
 - Lizard
 tags: []
 slug: /can-bearded-dragons-eat-onions/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Do you own one of these

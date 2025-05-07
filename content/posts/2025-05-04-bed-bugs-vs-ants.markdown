@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /bed-bugs-vs-ants/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 What is the difference between bed bugs vs. ants? Well, for a beginner, it's hard to them apart.

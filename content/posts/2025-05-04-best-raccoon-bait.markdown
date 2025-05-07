@@ -7,6 +7,7 @@ categories:
 - Raccoons
 tags: []
 slug: /best-raccoon-bait/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 Looking for the best raccoon bait? Raccoons can leave costly damages behind them. They can also spread diseases such as rabies.

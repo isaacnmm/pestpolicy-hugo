@@ -6,6 +6,7 @@ categories:
 - Keyboard
 tags: []
 slug: /best-49-key-midi-controller/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Last week I reviewed the

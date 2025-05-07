@@ -7,6 +7,7 @@ categories:
 - Lizard
 tags: []
 slug: /can-bearded-dragons-eat-cabbage/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Cabbages, whether red, green, or variegated, are vegetables that are often eaten together with course meals across the world.

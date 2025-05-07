@@ -6,6 +6,7 @@ categories:
 - Recording
 tags: []
 slug: /free-autotune-vst-plugins/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Here's a comparison guide between free Autotune vst plugins. In an attempt to get the best vocal and musical instrumental sound output, producers creatively use the autotune plugins to fine-tune the sounds.

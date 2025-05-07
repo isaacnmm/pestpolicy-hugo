@@ -6,6 +6,7 @@ categories:
 - Running shoes
 tags: []
 slug: /best-womens-running-shoes-for-plantar-fasciitis/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 The best Women's Running Shoes for Plantar Fasciitis are designed to relieve or prevent heel or foot pain.

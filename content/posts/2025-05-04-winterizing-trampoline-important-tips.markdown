@@ -6,6 +6,7 @@ categories:
 - Guide
 tags: []
 slug: /winterizing-trampoline-important-tips/
+lastmod: 2025-05-07T12:21:29+03:00
 ---
 
 Just because its winter, should you put away your trampoline and lock yourself and kids indoors? should you stop Winterizing Trampoline?

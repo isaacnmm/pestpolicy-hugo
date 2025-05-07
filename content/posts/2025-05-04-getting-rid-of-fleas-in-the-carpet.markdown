@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /getting-rid-of-fleas-in-the-carpet/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 It's hard to spot fleas in the carpet fibers, and many treatments

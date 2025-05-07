@@ -6,6 +6,7 @@ categories:
 - Laptops
 tags: []
 slug: /best-macbook-for-video-editing/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 Digital video editing requires huge processing power, heavy graphics, and, most importantly, storage space.

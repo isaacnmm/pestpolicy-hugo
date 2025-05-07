@@ -6,6 +6,7 @@ categories:
 - Recliners
 tags: []
 slug: /best-neck-and-shoulder-massager/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 Your Neck and Shoulders bear the largest effect of all the strenuous work activities, such as long sitting hours and using tools that are not ergonomically designed.

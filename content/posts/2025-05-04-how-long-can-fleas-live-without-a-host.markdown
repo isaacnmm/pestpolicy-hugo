@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-long-can-fleas-live-without-a-host/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Fleas are generally parasites that

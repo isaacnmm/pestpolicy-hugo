@@ -6,6 +6,7 @@ categories:
 - Exterminators
 tags: []
 slug: /armored-pest-svc-review/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Armored Pest Svc is an Idaho-based bug control company. Other cities it operates include Oklahoma, Columbus, Kansas City, Arizona, Phoenix, and Englewood.

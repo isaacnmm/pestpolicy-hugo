@@ -7,6 +7,7 @@ categories:
 - Lizard
 tags: []
 slug: /can-bearded-dragons-eat-oranges/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 **Can bearded dragons eat oranges?**

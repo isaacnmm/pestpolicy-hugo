@@ -7,6 +7,7 @@ categories:
 - Termites
 tags: []
 slug: /home-remedy-for-termites/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Soil treatment for termites with

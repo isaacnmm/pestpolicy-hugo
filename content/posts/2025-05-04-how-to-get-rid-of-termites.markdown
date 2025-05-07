@@ -7,6 +7,7 @@ categories:
 - Termites
 tags: []
 slug: /how-to-get-rid-of-termites/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Know how to get rid of termites? Despite that, most homeowners prefer professional

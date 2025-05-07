@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /does-baking-soda-kill-bed-bugs/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Does Baking Soda Kill Bed Bugs?

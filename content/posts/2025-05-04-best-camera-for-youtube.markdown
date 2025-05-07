@@ -6,6 +6,7 @@ categories:
 - Cameras
 tags: []
 slug: /best-camera-for-youtube/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Quality video shooting and You-tubing is a preserve of professional videographers. This is thanks to the advancement in video camera technology.

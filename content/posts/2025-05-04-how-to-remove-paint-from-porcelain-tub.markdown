@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /how-to-remove-paint-from-porcelain-tub/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Dried paint is at times cumbersome to remove from porcelain, especially when the wrong procedure is used. Could you be having similar challenges?

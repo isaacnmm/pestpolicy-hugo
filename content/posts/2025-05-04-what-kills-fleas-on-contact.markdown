@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /what-kills-fleas-on-contact/
+lastmod: 2025-05-07T12:21:29+03:00
 ---
 
 The question is; what kills fleas on contact? Will the remedy be safe for me and my pets? What product will

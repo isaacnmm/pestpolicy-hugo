@@ -6,6 +6,7 @@ categories:
 - Mowers
 tags: []
 slug: /best-riding-lawn-mower-for-zoysia-grass/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 If you are looking for the best riding lawn mower for zoysia grass, you're just on time for a review of the top units available today.

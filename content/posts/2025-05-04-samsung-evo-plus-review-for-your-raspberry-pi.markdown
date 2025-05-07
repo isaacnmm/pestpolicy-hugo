@@ -6,6 +6,7 @@ categories:
 - Raspberry Pi 3
 tags: []
 slug: /samsung-evo-plus-review-for-your-raspberry-pi/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 [Samsung Evo+ 32 GB](https://www.amazon.com/dp/B00WR4IJBE/?tag=p-policy-20)

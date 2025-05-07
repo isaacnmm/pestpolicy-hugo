@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /best-acrylic-paint-for-pouring/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 If you're looking for the best acrylic paint for pouring, you have to choose between different paint textures and brands - which might be a devastating task.

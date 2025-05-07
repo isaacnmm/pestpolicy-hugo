@@ -7,6 +7,7 @@ categories:
 - Snakes
 tags: []
 slug: /best-snake-repellent-for-yard/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 It is hard to live in an area with plentiful of snakes.

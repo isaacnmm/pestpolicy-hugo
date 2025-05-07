@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /best-acrylic-paint-for-canvas/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 If you're a beginner or expert painter/ artist hunting for the best acrylic paint for canvas, then relax you're in the right place.

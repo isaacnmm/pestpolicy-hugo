@@ -7,6 +7,7 @@ categories:
 - Mics
 tags: []
 slug: /what-is-a-dynamic-microphone/
+lastmod: 2025-05-07T12:21:29+03:00
 ---
 
 So, what is a

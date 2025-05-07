@@ -8,6 +8,7 @@ categories:
 - Seattle
 tags: []
 slug: /ant-exterminator-in-seattle/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Hey Seattle homeowners! Dealing with ant problems in the Emerald City? We know how those little critters can invade our homes and cause a real hassle. Here’s your go-to guide on tackling ant infestations in Seattle.

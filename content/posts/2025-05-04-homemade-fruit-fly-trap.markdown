@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /homemade-fruit-fly-trap/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 How would you love a homemade fruit fly trap? At times, you may find your compound or house, especially the kitchen, overtaken by a swarm of fruit flies.

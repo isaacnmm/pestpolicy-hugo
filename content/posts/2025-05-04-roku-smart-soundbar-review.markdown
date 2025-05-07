@@ -6,6 +6,7 @@ categories:
 - Soundbars
 tags: []
 slug: /roku-smart-soundbar-review/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 This is a Roku Smart Soundbar Review - a device that I'll note from the offset is a great streamer or soundbar that allows additional surround speakers -

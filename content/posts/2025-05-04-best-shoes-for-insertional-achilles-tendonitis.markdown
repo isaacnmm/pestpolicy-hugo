@@ -6,6 +6,7 @@ categories:
 - walking Shoes
 tags: []
 slug: /best-shoes-for-insertional-achilles-tendonitis/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 If you have swelling or pain at the back of the foot, it’s crucial that you invest in the Best Shoes for Insertional Achilles Tendonitis.

@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-to-keep-geese-away-from-your-pond/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Having a flock of geese in your pond could eliminate prevailing peace and natural beauty. Usually, geese literally convert your pond, lawn, or field to their bathroom. Is this really a good impression?

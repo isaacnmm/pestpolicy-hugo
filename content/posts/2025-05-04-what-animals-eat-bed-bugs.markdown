@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /what-animals-eat-bed-bugs/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 If you're wondering which animals will eat bed bugs (Hemiptera), read on to get the details. But you might not want some of these

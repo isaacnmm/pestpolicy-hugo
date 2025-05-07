@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /20-mule-team-borax-pest-control/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 If you’re seeking an affordable, eco-friendly way to control pests in your home, consider 20 Mule Team

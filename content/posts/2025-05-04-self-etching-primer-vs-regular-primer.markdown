@@ -7,6 +7,7 @@ categories:
 - Paint
 tags: []
 slug: /self-etching-primer-vs-regular-primer/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 When it comes to preparing metal surfaces for painting, choosing the right primer is crucial for achieving a smooth, long-lasting finish. Two common types of primers are self-etching primer and regular primer.

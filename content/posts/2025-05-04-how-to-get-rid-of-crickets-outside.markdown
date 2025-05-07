@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-to-get-rid-of-crickets-outside/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Are you tired of the incessant chirping of crickets keeping you up at night or invading your

@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-to-rid-your-home-of-big-headed-ants/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 The Bigheaded Ants (sceientifically;

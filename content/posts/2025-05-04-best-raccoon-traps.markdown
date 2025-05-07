@@ -7,6 +7,7 @@ categories:
 - Raccoons
 tags: []
 slug: /best-raccoon-traps/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 In this post, I’ve reviewed the best raccoon traps and cages available today. My key considerations are that the traps must be safe to the non-target animals and equally humane for

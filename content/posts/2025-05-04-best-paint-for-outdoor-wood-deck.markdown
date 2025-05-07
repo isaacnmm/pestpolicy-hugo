@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /best-paint-for-outdoor-wood-deck/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 For us, DIY homeowners, painting an old deck with fragmented paint, or revamping it with current technology, is the best way to give it a new look.

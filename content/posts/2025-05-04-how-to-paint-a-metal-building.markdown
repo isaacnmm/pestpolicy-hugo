@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-to-paint-a-metal-building/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Metal structures and buildings are emerging trends in the construction industry. Whether the building is temporary or permanent, painting is paramount in creating an impressive outlook and adding aesthetic value in the vicinity.

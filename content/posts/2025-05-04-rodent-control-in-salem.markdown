@@ -8,6 +8,7 @@ categories:
 - Salem
 tags: []
 slug: /rodent-control-in-salem/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Rodents such as rats and mice can pose serious health risks and cause significant damage to homes in Salem, OR. Effective rodent control involves identifying signs of infestation, implementing preventive measures, and using targeted treatments to eradicate these pests.

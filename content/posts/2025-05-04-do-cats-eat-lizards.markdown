@@ -7,6 +7,7 @@ categories:
 - Lizard
 tags: []
 slug: /do-cats-eat-lizards/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Do Cats Eat Lizards? Have you ever met lizards and cats together in your home, yard or compound? Can your lizard and cat pet live together? It is interesting to find how cats go along with lizards in your place? So, do cats eat lizards?

@@ -6,6 +6,7 @@ categories:
 - HIIT Shoes
 tags: []
 slug: /best-shoes-for-boot-camp/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 Today I present the Best Shoes for Boot Camp. Boot Camp training just like

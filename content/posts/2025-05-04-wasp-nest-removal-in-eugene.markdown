@@ -8,6 +8,7 @@ categories:
 - Wasps
 tags: []
 slug: /wasp-nest-removal-in-eugene/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Dealing with a wasp nest on your property can be a daunting task, especially in Eugene, OR, where the warm weather encourages wasps to build nests in and around homes.

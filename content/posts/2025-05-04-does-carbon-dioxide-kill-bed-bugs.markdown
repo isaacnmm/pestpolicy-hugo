@@ -6,6 +6,7 @@ categories:
 - Guide
 tags: []
 slug: /does-carbon-dioxide-kill-bed-bugs/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Carbon dioxide (CO2) is often considered a potential tool in the fight against pests like bed bugs. Understanding its effects on bed bugs and how it can be used as part of an integrated pest management strategy is important for those dealing with infestations. In this article, we will explore whether carbon dioxide can kill bed bugs and how it works in pest control.

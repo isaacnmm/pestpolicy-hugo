@@ -7,6 +7,7 @@ categories:
 - Rats
 tags: []
 slug: /how-to-get-rid-of-roof-rats-in-attic/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Have you recently discovered some activity in your attic and are afraid that it could be

@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /best-deck-stain-for-pressure-treated-wood/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 What’s the best deck stain for pressure-treated wood? There is a variety of deck stains and

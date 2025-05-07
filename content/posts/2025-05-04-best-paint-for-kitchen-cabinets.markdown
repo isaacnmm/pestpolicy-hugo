@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /best-paint-for-kitchen-cabinets/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 By reading this article on the best paint for cabinets, you will not only acquire in-depth knowledge on the best cabinet paint, but you will also be able to select the right paint that matches the primary material of your cabinet.

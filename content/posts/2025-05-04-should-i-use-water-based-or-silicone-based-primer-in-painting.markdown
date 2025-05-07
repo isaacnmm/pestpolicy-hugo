@@ -6,6 +6,7 @@ categories:
 - Uncategorized
 tags: []
 slug: /should-i-use-water-based-or-silicone-based-primer-in-painting/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 *Choosing the right primer is crucial for a successful painting project. Whether you're a professional painter or a DIY enthusiast, the type of primer you use can affect the adhesion, durability, and overall quality of your paint job. If you've found yourself pondering whether to go with a water-based or silicone-based primer, worry not! *

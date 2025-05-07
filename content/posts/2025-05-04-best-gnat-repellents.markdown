@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-gnat-repellents/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 Summer brings warm weather, outdoor adventures - and relentless swarms of gnats. These tiny pests can turn a relaxing day outside into an itchy, frustrating experience.

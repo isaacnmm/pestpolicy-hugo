@@ -7,6 +7,7 @@ categories:
 - Wasps
 tags: []
 slug: /baby-wasp/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 As homeowners, we're often faced with wasp attacks and other flying insects, especially in summer and thus it's critical to know all that appertains to

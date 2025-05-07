@@ -6,6 +6,7 @@ categories:
 - Swing Sets
 tags: []
 slug: /best-material-for-playground-surface/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 Choosing the Best Material for Playground Surface can be a daunting task given the many options available on the market today.

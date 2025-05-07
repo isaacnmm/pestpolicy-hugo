@@ -7,6 +7,7 @@ categories:
 - Ticks
 tags: []
 slug: /ticks-diseases-index/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Ticks may be tiny, but their ability to spread diseases makes them a major health concern. These blood-sucking parasites thrive in grassy, wooded areas, latching onto humans and pets to transmit illnesses that range from mildly irritating to downright deadly.

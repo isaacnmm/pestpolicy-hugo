@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /diatomaceous-earth-for-fleas/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 [Diatomaceous Earth (DE)](https://pestpolicy.com/diatomaceous-earth/)

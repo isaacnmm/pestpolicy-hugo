@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /what-do-you-cover-stairs-with-when-painting/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 When painting stairs, protecting both the stairs themselves and the surrounding area is crucial to achieving a successful and

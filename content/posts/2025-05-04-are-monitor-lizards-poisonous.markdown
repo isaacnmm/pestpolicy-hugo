@@ -7,6 +7,7 @@ categories:
 - Lizard
 tags: []
 slug: /are-monitor-lizards-poisonous/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Probably you have come across monitor lizards in your field, yard, compound or zoo and wonder if they could be poisonous. You may even have seen them feed on rats, snakes or rodents. But are Monitor Lizards Poisonous?

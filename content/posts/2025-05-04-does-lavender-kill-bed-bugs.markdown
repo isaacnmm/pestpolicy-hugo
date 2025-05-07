@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /does-lavender-kill-bed-bugs/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 I am sitting here in my rented property - and I am at a loss of what to do that'll clear this bed bug infestation. I moved into the house eight months ago! But, my son and I have had a nightmare with

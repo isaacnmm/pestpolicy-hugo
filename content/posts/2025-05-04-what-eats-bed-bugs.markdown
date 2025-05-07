@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /what-eats-bed-bugs/
+lastmod: 2025-05-07T12:21:29+03:00
 ---
 
 It’s very discouraging when you use the commercial as well as DIY bed bug solutions but still have bed bugs crawling in your house.

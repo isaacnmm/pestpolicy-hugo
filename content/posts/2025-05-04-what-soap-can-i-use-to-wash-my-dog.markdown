@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /what-soap-can-i-use-to-wash-my-dog/
+lastmod: 2025-05-07T12:21:29+03:00
 ---
 
 Dogs love playing and making themselves dirty. Washing them also becomes very tricky because not every soap can work on them.

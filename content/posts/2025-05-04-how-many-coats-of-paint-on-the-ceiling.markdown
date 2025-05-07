@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /how-many-coats-of-paint-on-the-ceiling/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 When it comes to painting a ceiling, many homeowners and DIY enthusiasts often wonder, "How many coats of paint on the ceiling are necessary?"

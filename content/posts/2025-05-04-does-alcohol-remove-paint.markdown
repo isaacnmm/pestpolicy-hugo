@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /does-alcohol-remove-paint/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Perhaps you have some alcohol you're wondering does alcohol removes paint from various surfaces. Can it cause stains in the application process or even destroy the material if used in whichever quantities?

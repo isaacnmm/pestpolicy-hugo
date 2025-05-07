@@ -6,6 +6,7 @@ categories:
 - Raspberry Pi 3
 tags: []
 slug: /best-heatsink-for-raspberry-pi-3/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 Is the raspberry pi three overheating? Choose one of the Best Heatsink for Raspberry Pi 3.

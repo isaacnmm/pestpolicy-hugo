@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /best-paint-for-guns/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 Having a great finish for your gun is determined by the kind of color that you use. There are several best paint for guns available in the market but selecting them needs a lot of factors to consider.

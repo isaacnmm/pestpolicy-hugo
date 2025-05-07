@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /harris-bed-bug-killer-review/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 For most of us homeowners, hiring a professional bed bug exterminator can be too expensive. Harris Bed Bug Killer asserts to be the

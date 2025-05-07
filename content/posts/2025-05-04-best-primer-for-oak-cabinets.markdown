@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-primer-for-oak-cabinets/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 If you are looking for a cheap alternative to buying expensive replacements for your furniture, painting oak cabinets (and

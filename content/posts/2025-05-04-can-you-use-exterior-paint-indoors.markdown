@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /can-you-use-exterior-paint-indoors/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Could you be a homeowner or property developer looking forward to painting your place? So, do you pick any paint and apply it anywhere -

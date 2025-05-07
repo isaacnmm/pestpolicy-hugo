@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /does-ammonia-kill-bed-bugs/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 But, if you're anything like me, you hate

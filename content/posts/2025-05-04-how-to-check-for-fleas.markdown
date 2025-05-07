@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-to-check-for-fleas/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Below I've outlined how to check for fleas. Sadly, this thought triggers an

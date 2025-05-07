@@ -6,6 +6,7 @@ categories:
 - Work Shoes
 tags: []
 slug: /best-shoes-for-surgical-techs/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 Today I’ll review the Best Shoes for Surgical Techs. Surgical Techs are always on their feet for long hours at the operating room (OR) providing surgical care and assistance.

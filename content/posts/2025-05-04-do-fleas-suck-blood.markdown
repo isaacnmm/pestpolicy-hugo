@@ -6,6 +6,7 @@ categories:
 - Guide
 tags: []
 slug: /do-fleas-suck-blood/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Fleas are tiny parasitic insects that feed on the blood of mammals and birds. While they are not capable of causing harm on their own, flea infestations can cause serious issues for both pets and humans. One of the most common questions people have about fleas is whether or not they actually suck blood. Let’s explore this question in detail.

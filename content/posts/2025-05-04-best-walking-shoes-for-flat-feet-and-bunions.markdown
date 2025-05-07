@@ -6,6 +6,7 @@ categories:
 - walking Shoes
 tags: []
 slug: /best-walking-shoes-for-flat-feet-and-bunions/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Below is a detailed review of Best Walking Shoes for Flat Feet and Bunions.

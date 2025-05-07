@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /latex-vs-acrylic-paint/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Perhaps you want to apply paint on a particular surface and wonders which option to take. Would latex paint work better than acrylic paint on furniture or concrete?

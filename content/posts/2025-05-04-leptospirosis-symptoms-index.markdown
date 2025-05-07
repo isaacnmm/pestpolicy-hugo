@@ -6,6 +6,7 @@ categories:
 - Guide
 tags: []
 slug: /leptospirosis-symptoms-index/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Leptospirosis is a bacterial infection that can affect both humans and animals. It is caused by bacteria of the genus

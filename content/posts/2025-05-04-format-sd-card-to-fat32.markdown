@@ -6,6 +6,7 @@ categories:
 - Guide
 tags: []
 slug: /format-sd-card-to-fat32/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Formatting an SD card to FAT32 is a common procedure, especially when you need to use the card with older devices or systems that require this specific file system. Below is a guide to help you format your SD card to FAT32 on different operating systems.

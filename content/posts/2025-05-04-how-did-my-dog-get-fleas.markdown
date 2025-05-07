@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-did-my-dog-get-fleas/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Recently, I noticed my neighbor's dog scratching and upon further inspection, I have served simply that on them.

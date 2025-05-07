@@ -7,6 +7,7 @@ categories:
 - Kids Playsets
 tags: []
 slug: /best-lego-set-for-11-year-old-boy/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 Are you looking for a perfect lego set for your 11-year-old son? you’ll love my detailed recommendation on the Best Lego Set For an 11-Year-Old Boy. A Lego set and

@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /wet-and-forget-reviews/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 If you need to remove moss, mold, and mildew stains on your outdoor surfaces,

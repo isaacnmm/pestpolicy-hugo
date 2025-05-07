@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-to-unclog-a-bathtub-drain-with-standing-water/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Here's how to unclog a bathtub drain with standing water. Lately, I’ve been getting many calls from clients who have clogged their bathtubs with excessive hair and soap scum.

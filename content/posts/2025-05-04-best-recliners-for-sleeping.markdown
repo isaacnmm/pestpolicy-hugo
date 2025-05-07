@@ -6,6 +6,7 @@ categories:
 - Recliners
 tags: []
 slug: /best-recliners-for-sleeping/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 It's never easy to find an excellent

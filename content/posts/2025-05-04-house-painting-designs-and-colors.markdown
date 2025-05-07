@@ -6,6 +6,7 @@ categories:
 - Guide
 tags: []
 slug: /house-painting-designs-and-colors/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Choosing the right house painting designs and colors can be a fun yet challenging task. The colors you choose for your home can influence the mood of each room and can even impact the value of your property. Whether you are updating the exterior or refreshing the interior, the right design and colors are key to achieving the look you want. In this guide, we will explore various house painting designs and color schemes to help you make informed decisions for your home.

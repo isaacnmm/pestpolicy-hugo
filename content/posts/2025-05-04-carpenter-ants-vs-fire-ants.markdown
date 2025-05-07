@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /carpenter-ants-vs-fire-ants/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Ant identification can be a challenging task - mainly due to the tiny size of these insects. You'd need a microscope or even use the

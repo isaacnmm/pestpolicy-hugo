@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /what-do-sugar-ants-look-like/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Below I've tackled this question - "what do sugar ants look like?"

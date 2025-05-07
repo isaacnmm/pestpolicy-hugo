@@ -7,6 +7,7 @@ categories:
 - Termites
 tags: []
 slug: /do-flying-termites-eat-wood/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 If you have seen flying termites around your home, you probably have a lot of questions in mind.

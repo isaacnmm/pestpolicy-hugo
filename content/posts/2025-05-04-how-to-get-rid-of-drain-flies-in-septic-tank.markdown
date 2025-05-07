@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-to-get-rid-of-drain-flies-in-septic-tank/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 The tiny moth-like bugs (drain flies) buzzing around your septic tank or

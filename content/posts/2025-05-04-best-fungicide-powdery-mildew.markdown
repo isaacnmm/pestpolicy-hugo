@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-fungicide-powdery-mildew/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 Powdery mildew can be a persistent problem for many gardeners. Selecting the right fungicide is crucial for effective management.

@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /best-paint-for-concrete-walls-in-basement/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 Unlike standard walls,

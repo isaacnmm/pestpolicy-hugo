@@ -6,6 +6,7 @@ categories:
 - Running shoes
 tags: []
 slug: /best-womens-running-shoes-for-bad-knees/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Today I present some of the Best Womens Running Shoes for Bad Knees. Running is a high-impact activity that can have a devastating effect on even the healthiest knees.

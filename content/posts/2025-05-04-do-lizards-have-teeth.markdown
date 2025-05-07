@@ -7,6 +7,7 @@ categories:
 - Lizard
 tags: []
 slug: /do-lizards-have-teeth/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Probably you’ve seen a lizard running around your house or yard. So, you’re wondering whether these reptiles can bite you, other humans, in your residence, or even pets.

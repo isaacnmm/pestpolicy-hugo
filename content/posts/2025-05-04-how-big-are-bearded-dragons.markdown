@@ -7,6 +7,7 @@ categories:
 - Lizard
 tags: []
 slug: /how-big-are-bearded-dragons/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 The bearded dragons are docile and beautiful reptiles that you'll love for their low maintenance. In this article, I will let you know how big bearded dragons (Beardies) can grow while in captivity.

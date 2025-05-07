@@ -6,6 +6,7 @@ categories:
 - Controllers
 tags: []
 slug: /best-wireless-pc-controller/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Is the

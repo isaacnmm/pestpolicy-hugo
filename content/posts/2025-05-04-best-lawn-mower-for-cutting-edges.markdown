@@ -6,6 +6,7 @@ categories:
 - Mowers
 tags: []
 slug: /best-lawn-mower-for-cutting-edges/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 My lawn care procedure is edge, trim, and then mow. Definitely, all your mower blades and cutting edges require regular sharpening.

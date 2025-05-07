@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /does-heat-kill-fleas/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Fleas are tiny

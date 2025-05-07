@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /how-to-keep-spray-paint-from-chipping-off-metal/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Keeping

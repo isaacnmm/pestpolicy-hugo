@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-mole-traps/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 Are you searching for the best mole traps? We cover it all in this guide!

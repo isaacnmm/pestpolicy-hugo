@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /mildew-resistant-paints/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 By reading this article on the best mildew resistant paints, you will gain refined information on eliminating molds and mildew from the painted surfaces.

@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-to-get-rid-of-ground-bees/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Have you noticed some conical dirt piles, but similar to anthills, with large openings in your yard? You could be having ground bees in your lawn! To be sure, watch any bees or insects flying into or out of the burrowed ground.

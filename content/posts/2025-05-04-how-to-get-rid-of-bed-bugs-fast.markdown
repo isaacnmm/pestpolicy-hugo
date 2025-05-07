@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-to-get-rid-of-bed-bugs-fast/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Here’s how to get rid of bed bugs fast. When you wake up and discover blisters, red rashes,

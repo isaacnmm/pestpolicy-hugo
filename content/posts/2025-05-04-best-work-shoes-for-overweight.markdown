@@ -6,6 +6,7 @@ categories:
 - Work Shoes
 tags: []
 slug: /best-work-shoes-for-overweight/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Selecting the best work shoes for

@@ -6,6 +6,7 @@ categories:
 - Financial
 tags: []
 slug: /microstrategy-buys-bitcoin-135-billion/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 MicroStrategy, a leading business intelligence firm, has continued its strategy of accumulating Bitcoin, bringing its total holdings to a staggering $13.5 billion.

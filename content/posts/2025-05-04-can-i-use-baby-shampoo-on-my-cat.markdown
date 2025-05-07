@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /can-i-use-baby-shampoo-on-my-cat/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Well, it takes a well-trained cat to make it have a bath, otherwise, cats hate water. To bath or

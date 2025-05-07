@@ -6,6 +6,7 @@ categories:
 - Work Shoes
 tags: []
 slug: /best-shoes-for-overweight-nurses/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 Today’s article is about Best Shoes for Overweight Nurses. Being an Overweight nurse shouldn’t discourage you from doing the good work of attending to your patients. You just need to invest in supportive and comfortable walking shoes that would take you through the long working hours.

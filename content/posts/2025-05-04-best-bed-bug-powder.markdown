@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-bed-bug-powder/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Bed bug control is a real struggle, especially with many bed bug powders and

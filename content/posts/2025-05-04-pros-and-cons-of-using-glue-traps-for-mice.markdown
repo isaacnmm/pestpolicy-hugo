@@ -7,6 +7,7 @@ categories:
 - Rats
 tags: []
 slug: /pros-and-cons-of-using-glue-traps-for-mice/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Glue traps are a common and reliable way of

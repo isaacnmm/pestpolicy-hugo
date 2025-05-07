@@ -6,6 +6,7 @@ categories:
 - Running shoes
 tags: []
 slug: /best-running-shoes-for-extensor-tendonitis/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 If you’re a runner and usually experience

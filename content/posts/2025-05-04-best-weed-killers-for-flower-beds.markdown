@@ -7,6 +7,7 @@ categories:
 - Weeds
 tags: []
 slug: /best-weed-killers-for-flower-beds/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 When choosing the best weed killers for flower beds or

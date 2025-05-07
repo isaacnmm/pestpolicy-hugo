@@ -7,6 +7,7 @@ categories:
 - Spiders
 tags: []
 slug: /can-you-drown-a-spider/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Probably there are thousand ways you can kill you can kill a spider in your yard or house.

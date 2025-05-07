@@ -11,6 +11,7 @@ tags:
 - termite control products
 - termite treatment
 slug: /best-termite-killer/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 Termites are tiny pests that can

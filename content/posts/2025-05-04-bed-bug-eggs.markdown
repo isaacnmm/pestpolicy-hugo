@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /bed-bug-eggs/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Upon mating with a male bed bug, the female bed bug lays oval, white eggs about 1/16-inch long. You'll find the eggs hidden in crevices & cracks.

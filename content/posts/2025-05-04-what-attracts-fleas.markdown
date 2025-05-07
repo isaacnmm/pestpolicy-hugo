@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /what-attracts-fleas/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Fleas will pose a hazard (health) to both pets and humans. So, ensure to

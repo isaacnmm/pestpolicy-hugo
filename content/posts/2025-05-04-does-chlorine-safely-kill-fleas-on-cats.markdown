@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /does-chlorine-safely-kill-fleas-on-cats/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Fleas got your cat down? Forget the pool chlorine – it's a recipe for disaster, and it can be downright dangerous for your precious kitty.

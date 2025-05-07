@@ -7,6 +7,7 @@ categories:
 - Spiders
 tags: []
 slug: /best-spider-spray-for-indoors/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 Looking for best spider spray for indoors? Say no more!

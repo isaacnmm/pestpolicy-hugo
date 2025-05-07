@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /at-what-temperature-do-fleas-die/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Using heat is one of the many ways of

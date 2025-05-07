@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-bottom-paint-for-trailered-boats/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Most boats that spend a lot of time in the water and risk

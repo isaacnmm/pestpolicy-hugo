@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /valspar-cabinet-paint/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 First, does Valspar

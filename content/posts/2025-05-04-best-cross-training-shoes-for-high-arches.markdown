@@ -6,6 +6,7 @@ categories:
 - HIIT Shoes
 tags: []
 slug: /best-cross-training-shoes-for-high-arches/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Best Cross Training Shoes for High Arches should have ample midsole cushioning and under-arch support to alleviate pain or discomfort caused by high arches.

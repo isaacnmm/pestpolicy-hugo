@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /how-to-paint-kitchen-cabinets-without-sanding/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Painting cabinets is a common activity carried out during paint restoration or new coat application in homes of commercial places. Whether it’s a kitchen cabinet or a wardrobe, sanding affects the finish outlook upon paint application, especially the case of the laminate wood.

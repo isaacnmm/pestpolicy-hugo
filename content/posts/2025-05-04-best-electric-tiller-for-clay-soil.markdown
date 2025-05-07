@@ -6,6 +6,7 @@ categories:
 - Tillers
 tags: []
 slug: /best-electric-tiller-for-clay-soil/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Clay soil may not be the best for your gardening needs.

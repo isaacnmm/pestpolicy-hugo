@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /does-steam-cleaning-kill-fleas/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Fleas will reproduce rapidly and may soon become a challenge to pets, pet owners, and households. But is steam cleaning a suitable method to eradicate fleas?

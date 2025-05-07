@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /sanding-walls-before-painting/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 You can use either a sanding block or some

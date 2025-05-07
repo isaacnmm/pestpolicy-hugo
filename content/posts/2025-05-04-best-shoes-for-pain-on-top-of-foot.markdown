@@ -6,6 +6,7 @@ categories:
 - walking Shoes
 tags: []
 slug: /best-shoes-for-pain-on-top-of-foot/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 Which are the Best Shoes for Pain On top Of Foot? Pain On Top Of Foot is a common problem that affects most people irrespective of the activities they do. However, wearing unsupportive shoes can aggravate top of foot pain.

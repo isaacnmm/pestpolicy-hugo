@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /proof-bed-bug-spray-review/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Well, Proof qualified to our list of

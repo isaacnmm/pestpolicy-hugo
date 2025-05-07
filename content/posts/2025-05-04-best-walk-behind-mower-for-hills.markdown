@@ -7,6 +7,7 @@ categories:
 - Mowers
 tags: []
 slug: /best-walk-behind-mower-for-hills/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Maintaining a hilly lawn can be challenging, but with the right walk-behind mower, it can become a manageable - even enjoyable - task. Sloped lawns require mowers that offer enhanced stability, superior traction, and user-friendly features that make navigating uneven ground safer and easier.

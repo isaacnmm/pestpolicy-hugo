@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /best-paint-for-metal-garage-door/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 Garage doors tend to take a beating, particularly after prolonged use and given their location and the heavy equipment that passes through them.

@@ -6,6 +6,7 @@ categories:
 - Soundproofing
 tags: []
 slug: /lizard-skin-vs-dynamat/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Road noise in a car may be one of the most distracting, or rather irritating things about driving - Lizard Skin Vs Dynamat.

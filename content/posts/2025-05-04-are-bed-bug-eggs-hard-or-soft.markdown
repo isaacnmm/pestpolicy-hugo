@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /are-bed-bug-eggs-hard-or-soft/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Are

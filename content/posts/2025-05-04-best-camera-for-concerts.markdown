@@ -6,6 +6,7 @@ categories:
 - Cameras
 tags: []
 slug: /best-camera-for-concerts/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 [Live concerts](https://en.wikipedia.org/wiki/Concert)

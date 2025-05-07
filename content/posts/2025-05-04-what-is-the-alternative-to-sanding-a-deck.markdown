@@ -6,6 +6,7 @@ categories:
 - Uncategorized
 tags: []
 slug: /what-is-the-alternative-to-sanding-a-deck/
+lastmod: 2025-05-07T12:21:29+03:00
 ---
 
 Are you looking for an alternative to sanding your deck? You're not alone! Many homeowners find sanding a deck to be a laborious and time-consuming task.

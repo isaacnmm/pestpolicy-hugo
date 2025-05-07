@@ -6,6 +6,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-gopher-poison/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 [Gophers](http://ipm.ucanr.edu/PMG/PESTNOTES/pn7433.html)

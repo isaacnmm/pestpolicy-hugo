@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-to-refinish-a-deck/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 If your deck is faded or bleached; then, refinishing is urgently required to restore its initial beauty.

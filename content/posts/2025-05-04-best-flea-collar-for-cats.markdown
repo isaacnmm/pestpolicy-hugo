@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-flea-collar-for-cats/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 When choosing the best flea collar for cats, you can consider things like effectiveness, safety, duration of protection, and ease of use.

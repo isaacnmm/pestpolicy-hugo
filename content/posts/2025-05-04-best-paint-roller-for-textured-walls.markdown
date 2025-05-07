@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /best-paint-roller-for-textured-walls/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 When the primer is fully dry, get a

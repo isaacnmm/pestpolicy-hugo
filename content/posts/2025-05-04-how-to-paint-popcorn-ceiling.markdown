@@ -7,6 +7,7 @@ categories:
 - Paint
 tags: []
 slug: /how-to-paint-popcorn-ceiling/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Before proceeding to paint the popcorn ceiling, let’s first understand what is popcorn ceiling?

@@ -7,6 +7,7 @@ categories:
 - Roaches
 tags: []
 slug: /do-geckos-eat-roaches/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Have you been disturbed by colonies of roaches in your place and wonder which animal can eliminate them naturally? You may even be compelled to find out if some of your pets can eat cockroaches.

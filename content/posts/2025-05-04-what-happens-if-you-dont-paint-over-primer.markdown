@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /what-happens-if-you-dont-paint-over-primer/
+lastmod: 2025-05-07T12:21:29+03:00
 ---
 
 Usually, the

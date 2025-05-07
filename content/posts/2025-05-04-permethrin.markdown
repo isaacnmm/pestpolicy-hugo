@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /permethrin/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Permethrin is one of the synthetic chemicals that are classified under the

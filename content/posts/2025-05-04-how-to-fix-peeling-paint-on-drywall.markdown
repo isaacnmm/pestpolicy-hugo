@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /how-to-fix-peeling-paint-on-drywall/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 [Painting drywall](https://pestpolicy.com/best-drywall-primer-sealer/)

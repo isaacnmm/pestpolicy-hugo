@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /does-steam-kill-bed-bugs/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 "Goodnight, sleep tight, and don't let the bed bugs bite!"

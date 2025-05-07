@@ -6,6 +6,7 @@ categories:
 - HIIT Shoes
 tags: []
 slug: /best-cross-training-shoes-for-wide-feet/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 You’ll agree with me that finding the Best Cross Training Shoes For Wide Feet can be a daunting task. Athletes with wide feet need reliable cross-training shoes that can withstand the intense training sessions.

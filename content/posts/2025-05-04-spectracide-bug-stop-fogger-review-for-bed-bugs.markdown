@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /spectracide-bug-stop-fogger-review-for-bed-bugs/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Spectracide Bug Stop Fogger is not a spray but a fogger, or bug bombs, which will claim the ability to permanently kill bed bugs - as one of the

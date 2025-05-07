@@ -6,6 +6,7 @@ categories:
 - Cameras
 tags: []
 slug: /best-compact-cameras-under-300/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 In this post, I’ve reviewed the best compact cameras under 300. Granted, it’s the end of summer and you need to take great shots of your kids.

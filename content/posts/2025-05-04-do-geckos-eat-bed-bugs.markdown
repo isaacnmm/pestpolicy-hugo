@@ -7,6 +7,7 @@ categories:
 - Lizard
 tags: []
 slug: /do-geckos-eat-bed-bugs/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Below I answer this question - do geckos eat bed bugs or what can you use to exterminate the bugs. So, will lizards help exterminate the bed bugs?

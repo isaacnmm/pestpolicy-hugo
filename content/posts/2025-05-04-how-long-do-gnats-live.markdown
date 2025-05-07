@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-long-do-gnats-live/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Gnats are restless two-winged flies commonly found in residential and commercial establishments.

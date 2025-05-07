@@ -6,6 +6,7 @@ categories:
 - Mics
 tags: []
 slug: /best-bass-amps-for-small-gigs/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Focusing on the best bass amps for small gigs would be a brilliant move towards improving your daily entertainment activities.

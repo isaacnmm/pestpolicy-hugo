@@ -6,6 +6,7 @@ categories:
 - Guitar
 tags: []
 slug: /best-acoustic-guitar-under-1000/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 The best

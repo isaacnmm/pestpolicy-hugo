@@ -6,6 +6,7 @@ categories:
 - Tillers
 tags: []
 slug: /how-to-use-a-rear-tine-tiller/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Proper

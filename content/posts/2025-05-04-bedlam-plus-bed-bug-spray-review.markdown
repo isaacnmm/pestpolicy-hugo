@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /bedlam-plus-bed-bug-spray-review/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Hey guys, and welcome. I've reviewed Bedlam Plus bed bug spray - one of our

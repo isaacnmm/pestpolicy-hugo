@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /does-wd-40-remove-paint/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Does WD 40 work like a paint cleaner, a lubricant, or a degreaser? How effective is WD 40 when used in automobile service or with

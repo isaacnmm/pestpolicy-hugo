@@ -7,6 +7,7 @@ categories:
 - Lizard
 tags: []
 slug: /can-bearded-dragons-eat-grapes/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 In this article I've answered this question - can bearded dragon eat grapes? Grapes, whether red, green, yellow, pink or black, are either seedless or seeded clustered fruits that grow in temperate climate across the world.

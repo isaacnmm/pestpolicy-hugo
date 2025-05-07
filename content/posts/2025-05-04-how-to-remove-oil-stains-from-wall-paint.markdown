@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /how-to-remove-oil-stains-from-wall-paint/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Oil stain removal can be problematic to many especially when it occurs on a painted surface. Cleaning the stained area without affecting the background color may not be easier.

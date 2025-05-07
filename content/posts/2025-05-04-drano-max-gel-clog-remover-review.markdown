@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /drano-max-gel-clog-remover-review/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 So today, I’m at my house in Downtown Houston ready to do a review of the Drano Max Gel Clog Remover - the runner-up product in the

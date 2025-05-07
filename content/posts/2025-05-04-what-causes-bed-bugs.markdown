@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /what-causes-bed-bugs/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 [Bed bugs](https://pestpolicy.com/pictures-of-bed-bugs/)

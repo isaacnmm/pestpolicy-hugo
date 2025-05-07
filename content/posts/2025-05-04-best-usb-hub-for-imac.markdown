@@ -6,6 +6,7 @@ categories:
 - Laptops
 tags: []
 slug: /best-usb-hub-for-imac/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 The best USB hub for iMac will house extra ports for connecting additional peripherals like

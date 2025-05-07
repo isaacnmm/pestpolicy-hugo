@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /can-fleas-live-in-carpets/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 So, can fleas live in carpets? For pet owners, fleas are an unfortunate part of having animals in the home, and from time to time, you may notice an infestation on your pet - maybe you've tried

@@ -6,6 +6,7 @@ categories:
 - Exterminators
 tags: []
 slug: /terminix-review/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Pests such as bed bugs, termites, fleas flies, and ants are a nuisance to homeowners but they will also threaten our health and investments such as houses.

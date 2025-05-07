@@ -6,6 +6,7 @@ categories:
 - Defense
 tags: []
 slug: /best-crossbow-for-self-defense/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 While on this site, we won't encourage careless shooting, at one time or another, you will need the b

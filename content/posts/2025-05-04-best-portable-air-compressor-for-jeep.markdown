@@ -6,6 +6,7 @@ categories:
 - Guide
 tags: []
 slug: /best-portable-air-compressor-for-jeep/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 Being stuck on the road with your jeep because of a flat tire can be quite inconveniencing.

@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /best-stain-for-pine/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 It is not an easy task choosing the best stain for pine whether you are a professional or into DIY projects.

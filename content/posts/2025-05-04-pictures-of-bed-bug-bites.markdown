@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /pictures-of-bed-bug-bites/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Are you trying to determine if we have bed bugs in the house? First, I'll narrate a personal experience I had eight months ago.

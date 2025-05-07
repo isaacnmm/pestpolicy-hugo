@@ -6,6 +6,7 @@ categories:
 - Running shoes
 tags: []
 slug: /best-running-shoes-for-men-with-flat-feet/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 Your flat feet should not limit your running and training schedule - try the best running shoes for men with flat feet.

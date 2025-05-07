@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /best-oil-based-primer-for-cabinets/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 [Priming the surfaces](https://pestpolicy.com/best-drywall-primer-sealer/)

@@ -7,6 +7,7 @@ categories:
 - No See Ums
 tags: []
 slug: /can-no-see-ums-live-in-my-hair/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 **So, on whether can no-see-ums live in my hair; NO, the no-see-ums or biting midges won't live in hair but may hide temporarily or get tangled shortly. **

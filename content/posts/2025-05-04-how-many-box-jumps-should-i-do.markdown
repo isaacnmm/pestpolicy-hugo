@@ -6,6 +6,7 @@ categories:
 - Guide
 tags: []
 slug: /how-many-box-jumps-should-i-do/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 How Many Box Jumps Should I Do? well, It depends on your strength and goals.

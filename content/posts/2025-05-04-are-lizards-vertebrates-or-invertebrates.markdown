@@ -7,6 +7,7 @@ categories:
 - Lizard
 tags: []
 slug: /are-lizards-vertebrates-or-invertebrates/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 May be you have come across various species of lizards in your home, park or zoo and wonder whether they have backbones or not. How could their internal organs be protected or supported? Could they be having similar anatomy as mammals or other animals?

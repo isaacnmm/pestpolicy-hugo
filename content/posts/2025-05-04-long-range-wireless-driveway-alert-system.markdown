@@ -6,6 +6,7 @@ categories:
 - Defense
 tags: []
 slug: /long-range-wireless-driveway-alert-system/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 The long-range wireless driveway alert system alarm will help you detect any intruder that sets foot in your residence.

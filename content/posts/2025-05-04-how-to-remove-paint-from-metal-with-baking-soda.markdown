@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /how-to-remove-paint-from-metal-with-baking-soda/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Suppose you require a

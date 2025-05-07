@@ -7,6 +7,7 @@ categories:
 - Moles
 tags: []
 slug: /how-can-you-tell-if-you-have-moles-in-your-yard/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Maybe in your yard, you spotted a mouse or a rat, or it’s a mole but you can tell the difference. How can you tell if you have moles in your yard?

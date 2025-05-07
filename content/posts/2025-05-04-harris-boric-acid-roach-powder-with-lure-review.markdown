@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /harris-boric-acid-roach-powder-with-lure-review/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 In this post, I've reviewed Harris Boric Acid powder as an effective roach killer. Harris Boric Acid is a historic roach control method, at least the composition's chemical side.

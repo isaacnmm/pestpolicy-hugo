@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /can-you-use-human-shampoo-on-cats/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Cats love that clean life, they'll grom their skin regularly removing any dirt, dead skin, or loose fur. But, if you're to clean off piles of mud from the pet, can you use human shampoo on cats?

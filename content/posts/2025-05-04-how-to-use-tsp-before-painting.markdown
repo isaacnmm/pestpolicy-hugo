@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /how-to-use-tsp-before-painting/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 TSP (Na3PO4 - Trisodium Phosphate) is a detergent (an all-purpose cleaner) to clean wood, masonry, drywall, and plaster that also leads to

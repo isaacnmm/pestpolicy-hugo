@@ -6,6 +6,7 @@ categories:
 - walking Shoes
 tags: []
 slug: /best-shoes-for-heel-bursitis/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 Today I present the Best Shoes for Heel Bursitis.

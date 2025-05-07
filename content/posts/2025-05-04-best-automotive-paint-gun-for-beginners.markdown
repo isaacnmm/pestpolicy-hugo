@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /best-automotive-paint-gun-for-beginners/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 What’s the best automotive paint gun for beginners? You don’t have to be an expert to achieve a professional car paint job.

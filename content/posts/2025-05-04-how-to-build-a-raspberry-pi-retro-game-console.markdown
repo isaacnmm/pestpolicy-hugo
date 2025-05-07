@@ -6,6 +6,7 @@ categories:
 - Raspberry Pi 3
 tags: []
 slug: /how-to-build-a-raspberry-pi-retro-game-console/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 It's no brainier that retro gamers have always desired to create their "general game console," which would enable them to play games from various systems.

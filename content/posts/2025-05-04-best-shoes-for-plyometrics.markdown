@@ -6,6 +6,7 @@ categories:
 - HIIT Shoes
 tags: []
 slug: /best-shoes-for-plyometrics/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 Are you looking for the Best Shoes for Plyometrics? You’re right on time! During Plyometrics you’ll engage in many intense movements like jumping, skipping, hopping, jump squats, clash push-ups, and many other explosive movements.

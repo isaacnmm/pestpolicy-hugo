@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /can-bed-bugs-live-in-carpet-3/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Bed bugs! Their name is quite deceiving.Mainly, you’ll find these pests living in beds and

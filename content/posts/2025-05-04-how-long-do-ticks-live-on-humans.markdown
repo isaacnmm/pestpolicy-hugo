@@ -7,6 +7,7 @@ categories:
 - Ticks
 tags: []
 slug: /how-long-do-ticks-live-on-humans/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 In this article, we'll tackle this question - how long do ticks live on humans? Definitely, longer engagement with ticks could result in infections and conditions such as

@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-flea-shampoos-for-dogs/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Fleas are more than just a nuisance - they can cause severe itching, skin infections, and even transmit diseases to your dog. Choosing the right flea shampoo is essential for

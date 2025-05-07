@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-ant-traps/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Besides being such a big nuisance, ants are incredibly destructive. Have you considered the best ant traps?

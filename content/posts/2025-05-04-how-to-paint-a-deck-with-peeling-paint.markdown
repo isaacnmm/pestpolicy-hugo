@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /how-to-paint-a-deck-with-peeling-paint/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Perhaps your deck is covered with old peeling paint and wonders how to clean and repaint. Frequent

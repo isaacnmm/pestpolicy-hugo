@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-to-unclog-a-bathroom-sink-drain/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Could you be having a stuffy or

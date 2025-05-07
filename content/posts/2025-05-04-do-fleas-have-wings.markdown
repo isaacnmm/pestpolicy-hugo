@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /do-fleas-have-wings/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 *So, how do fleas move? Do fleas have wings?  *

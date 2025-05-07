@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /are-mole-crickets-bad-for-your-garden-or-lawn/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 If you're concerned about the well-being of your garden or lawn and whether mole crickets

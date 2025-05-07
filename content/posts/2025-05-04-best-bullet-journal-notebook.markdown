@@ -7,6 +7,7 @@ categories:
 - Raspberry Pi 3
 tags: []
 slug: /best-bullet-journal-notebook/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Journalists, writers, and productivity enthusiasts swear by

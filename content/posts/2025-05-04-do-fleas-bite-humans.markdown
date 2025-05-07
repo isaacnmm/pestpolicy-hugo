@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /do-fleas-bite-humans/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 [Flea bites](https://www.petmd.com/dog/parasites/flea-bites-dogs-what-do-they-look)

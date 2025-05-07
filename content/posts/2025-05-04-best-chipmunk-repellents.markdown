@@ -7,6 +7,7 @@ categories:
 - Squirrels
 tags: []
 slug: /best-chipmunk-repellents/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Are you searching for the best chipmunk repellents? Chipmunks can cause significant damage around your home, from gardens to garage spaces.

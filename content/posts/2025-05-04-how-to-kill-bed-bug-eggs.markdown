@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-to-kill-bed-bug-eggs/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 [Bed bugs eggs](https://pestpolicy.com/bed-bug-eggs/)

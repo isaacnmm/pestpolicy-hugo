@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /homemade-ant-killer/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Are you stuck with an ant problem in your house and lawns? You don’t have to worry anymore! There’re many do-it-yourself home remedies you can use to get rid of these insects.

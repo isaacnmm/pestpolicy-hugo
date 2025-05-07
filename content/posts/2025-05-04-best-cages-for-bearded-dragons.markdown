@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-cages-for-bearded-dragons/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 When choosing the best cages for bearded dragons, you can consider factors like size, ventilation, material, ease of cleaning, and additional features.

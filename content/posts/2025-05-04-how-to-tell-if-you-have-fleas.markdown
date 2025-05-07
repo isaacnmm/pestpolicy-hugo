@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-to-tell-if-you-have-fleas/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 It is pretty obvious and common for pets to catch fleas and eventually show up at home with a full load of them.

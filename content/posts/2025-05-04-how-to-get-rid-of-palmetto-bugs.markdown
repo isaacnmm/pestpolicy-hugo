@@ -7,6 +7,7 @@ categories:
 - Roaches
 tags: []
 slug: /how-to-get-rid-of-palmetto-bugs/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 The sight of

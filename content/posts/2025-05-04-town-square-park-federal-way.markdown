@@ -6,6 +6,7 @@ categories:
 - Federal Way
 tags: []
 slug: /town-square-park-federal-way/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Town Square Park is a vibrant and welcoming public space located in the heart of Federal Way, Washington.

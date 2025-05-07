@@ -6,6 +6,7 @@ categories:
 - HIIT Shoes
 tags: []
 slug: /best-shoes-for-sled-pushing/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 Are you looking for the Best Shoes for Sled Pushing? If you answered yes, you’re right on time.

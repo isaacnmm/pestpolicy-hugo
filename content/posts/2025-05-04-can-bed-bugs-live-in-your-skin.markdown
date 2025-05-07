@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /can-bed-bugs-live-in-your-skin/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Bed bugs will feed on your bare (or hairless) skin areas - including legs, arms, face, and neck. For starters,

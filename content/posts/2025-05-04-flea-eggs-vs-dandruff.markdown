@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /flea-eggs-vs-dandruff/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Sometimes it is not easy to tell the difference between flea eggs vs. dandruff that appears on your pet's skin - but

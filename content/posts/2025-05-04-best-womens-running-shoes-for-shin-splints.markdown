@@ -6,6 +6,7 @@ categories:
 - Running shoes
 tags: []
 slug: /best-womens-running-shoes-for-shin-splints/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 One way women can use to prevent shin splints is to invest in the Best Women’s Running Shoes for Shin Splints.

@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /tea-tree-oil-for-bed-bugs/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Tea tree oil for bed bugs - finding an exterminator is expensive, and even when you find one, they use toxic chemicals.

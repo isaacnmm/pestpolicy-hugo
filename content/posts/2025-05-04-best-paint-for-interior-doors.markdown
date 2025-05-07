@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /best-paint-for-interior-doors/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 The interior of your house can be a high traffic zone, especially if you have more occupants who must move from one room to another.

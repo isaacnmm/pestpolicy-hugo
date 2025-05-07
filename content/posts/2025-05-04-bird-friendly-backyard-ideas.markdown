@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /bird-friendly-backyard-ideas/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Are you looking to make your backyard more bird-friendly? Well, you need the right habitat to attract a variety of popular birds into your backyard. Hence, a bird-friendly garden must fulfill the bird’s basic needs like water, food, shelter, and nesting sites.

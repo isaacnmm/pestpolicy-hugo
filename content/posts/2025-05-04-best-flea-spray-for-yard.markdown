@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-flea-spray-for-yard/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Fleas can be annoying to both humans and pets. Worse still, they could cause severe health complications if not controlled - try the best flea spray for the yard.

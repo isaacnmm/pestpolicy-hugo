@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /compare-carpenter-bee-vs-bumblebee/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Amidst the confusion between black bees in your yard, you must have tried to compare carpenter bee vs. bumblebee.

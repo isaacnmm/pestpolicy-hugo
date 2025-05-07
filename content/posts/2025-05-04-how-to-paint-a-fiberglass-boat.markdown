@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /how-to-paint-a-fiberglass-boat/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 But how do you paint a

@@ -9,6 +9,7 @@ categories:
 - Rats
 tags: []
 slug: /rodent-control-in-puyallup/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Rodents can be a significant nuisance and health hazard for homeowners in Puyallup, WA.

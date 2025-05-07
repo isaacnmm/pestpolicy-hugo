@@ -6,6 +6,7 @@ categories:
 - DIY Paintings
 tags: []
 slug: /how-to-remove-paint-from-plastic/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Removing stains from plastic may be cumbersome especially when the wrong paint removal process is used. Usually, plastics are made of various material properties and strength.

@@ -6,6 +6,7 @@ categories:
 - Raspberry Pi 3
 tags: []
 slug: /best-os-for-raspberry-pi-3/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 Did you order a Raspberry Pi 3 without a ready installed Operating System? If Not, you might need to install the Best OS for Raspberry Pi 3.

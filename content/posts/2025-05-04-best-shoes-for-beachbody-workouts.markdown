@@ -7,6 +7,7 @@ categories:
 - Product Reviews
 tags: []
 slug: /best-shoes-for-beachbody-workouts/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 Beachbody Workouts may include high-intensity workouts like insanity, dance, PIYO

@@ -6,6 +6,7 @@ categories:
 - Recliners
 tags: []
 slug: /best-rocking-chairs-for-nursery/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 In this post, I will tear down the best rocking chairs for nurseries available in the market. With a newborn baby, it is almost impossible to rest easy.

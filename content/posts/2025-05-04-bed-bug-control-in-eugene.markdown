@@ -8,6 +8,7 @@ categories:
 - Guide
 tags: []
 slug: /bed-bug-control-in-eugene/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 Dealing with a bed bug infestation can be a stressful experience for homeowners in Eugene, OR.

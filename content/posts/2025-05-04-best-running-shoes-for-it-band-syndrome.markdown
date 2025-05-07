@@ -6,6 +6,7 @@ categories:
 - Running shoes
 tags: []
 slug: /best-running-shoes-for-it-band-syndrome/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 Are you looking for the Best Running Shoes for

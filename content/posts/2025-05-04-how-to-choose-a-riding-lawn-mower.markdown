@@ -6,6 +6,7 @@ categories:
 - Mowers
 tags: []
 slug: /how-to-choose-a-riding-lawn-mower/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Acquiring the best

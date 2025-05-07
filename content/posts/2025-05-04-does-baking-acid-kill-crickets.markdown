@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /does-baking-acid-kill-crickets/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Are you troubled by the constant chirping of crickets in your home and wondering if baking acid can put an end to their symphony? Well, you're in the right place. We've done the research for you, so let's dive into the science behind whether baking acid can effectively eliminate crickets from your space.

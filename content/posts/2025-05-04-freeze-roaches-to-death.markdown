@@ -7,6 +7,7 @@ categories:
 - Roaches
 tags: []
 slug: /freeze-roaches-to-death/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 [Cockroaches](https://en.wikipedia.org/wiki/Cockroach)

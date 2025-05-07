@@ -6,6 +6,7 @@ categories:
 - Swing Sets
 tags: []
 slug: /best-tree-swing/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 ![](/assets/img/e/ir)

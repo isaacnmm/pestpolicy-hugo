@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /does-the-dryer-kill-fleas/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Drying fabric or clothes at high temperatures is often prescribed to homeowners

@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-to-get-rid-of-fleas-in-carpet/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 If you’ve got a furry pet at home, it’s likely that your carpet is

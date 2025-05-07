@@ -7,6 +7,7 @@ categories:
 - Lizard
 tags: []
 slug: /can-bearded-dragons-eat-broccoli/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 Can bearded dragons eat broccoli? Vegetables are part of the

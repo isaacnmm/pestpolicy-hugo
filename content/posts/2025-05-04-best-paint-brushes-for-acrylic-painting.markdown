@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /best-paint-brushes-for-acrylic-painting/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 Since acrylic paints tend to be hard on hairbrushes, they need to be replaced often if you are not so diligent about cleaning up after use.

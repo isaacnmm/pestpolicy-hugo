@@ -6,6 +6,7 @@ categories:
 - Laptops
 tags: []
 slug: /best-laptop-for-music-production/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 Choosing the best laptop for music production is no easy task. But it's critical to ensure your computer is sturdy, portable & durable to efficiently run

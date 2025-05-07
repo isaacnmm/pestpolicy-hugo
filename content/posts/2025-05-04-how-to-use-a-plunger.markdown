@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-to-use-a-plunger/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Overflowing toilets and slow-drains are a common plumbing problem in most homes. Do you find using a

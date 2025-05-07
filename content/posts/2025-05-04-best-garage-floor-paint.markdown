@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /best-garage-floor-paint/
+lastmod: 2025-05-07T12:21:24+03:00
 ---
 
 Choosing the best garage floor paint is a critical task that should not be taken lightly because of the unique nature of this facility's services.

@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /does-bleach-kill-bed-bugs/
+lastmod: 2025-05-07T12:21:26+03:00
 ---
 
 For years, bleach has been a product of choice for sanitizing and cleaning for most people. Due to its corrosive nature, homeowners have often considered it to kill bed bugs.

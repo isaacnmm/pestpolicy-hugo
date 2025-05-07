@@ -6,6 +6,7 @@ categories:
 - Cameras
 tags: []
 slug: /best-point-and-shoot-camera-under-100/
+lastmod: 2025-05-07T12:21:25+03:00
 ---
 
 Most smartphone cameras have

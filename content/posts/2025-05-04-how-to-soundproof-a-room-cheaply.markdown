@@ -6,6 +6,7 @@ categories:
 - Soundproofing
 tags: []
 slug: /how-to-soundproof-a-room-cheaply/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 Living in an urban area has its ups and downs. Among the major downsides of living in an urban area is having to deal with all sorts of noises from the external environment.

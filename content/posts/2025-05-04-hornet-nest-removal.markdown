@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /hornet-nest-removal/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 This is a Hornet Nest Removal guide. It is a kind of unpleasant situation for you if you are having a hornet or wasp’s nest around in or near your place.

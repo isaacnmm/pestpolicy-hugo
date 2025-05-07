@@ -6,6 +6,7 @@ categories:
 - No See Ums
 tags: []
 slug: /natural-repellants-for-no-see-ums/
+lastmod: 2025-05-07T12:21:28+03:00
 ---
 
 No-see-ums, also known as biting midges or sandflies, can be quite bothersome with their itchy bites. While there's no foolproof method to completely eradicate them, there are some natural repellents you can try to keep them at bay:

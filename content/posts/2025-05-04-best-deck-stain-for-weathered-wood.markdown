@@ -6,6 +6,7 @@ categories:
 - Paint
 tags: []
 slug: /best-deck-stain-for-weathered-wood/
+lastmod: 2025-05-07T12:21:23+03:00
 ---
 
 What’s the best deck stain for weathered wood? Well, the best remedy for old and weathered wood is giving it a good wash, some sanding, and a coat of stain.

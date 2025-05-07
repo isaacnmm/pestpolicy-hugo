@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-to-remove-ants-from-carpet/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Ants are

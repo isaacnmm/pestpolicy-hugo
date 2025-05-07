@@ -7,6 +7,7 @@ categories:
 - Guide
 tags: []
 slug: /how-long-does-it-take-for-borax-to-kill-ants/
+lastmod: 2025-05-07T12:21:27+03:00
 ---
 
 Usually, the first line of defense against ants is some sort of poison that will kill them and keep them from coming back.
