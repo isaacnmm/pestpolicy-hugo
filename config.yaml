@@ -1,6 +1,6 @@
 baseURL: "https://pestpolicy.com/"
 languageCode: "en-us"
-title: "Home Improvement | Guides & Reviews" # Updated for SEO
+title: "Insights" # Updated for SEO
 theme: 'hugo-PaperMod'
 
 outputs:
@@ -30,7 +30,7 @@ params:
   env: 'production'
   defaultTheme: 'auto'
 
-  title: "Home Improvement | Bugs, Paints, Sprayers"
+  title: "Insights | Bugs, Paints, Sprayers"
   description: "Trusted step-by-step DIY Home Improvmeent guides and unbiased product reviews."
   robots: "index, follow"
 
