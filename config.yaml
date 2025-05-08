@@ -17,6 +17,23 @@ outputFormats:
     isPlainText: true
     notAlternative: true
 
+# config.yml example (merge with your existing config)
+theme: PaperMod
+
+params:
+  # Demo-specific settings
+  defaultTheme: auto
+  disableSpecial1stPost: false
+  disableScrollToTop: false
+  homeInfoParams:
+    Title: "Hi, I'm PaperMod"
+    Content: "This is the demo content from PaperMod theme"
+
+# Enable features used in the demo
+buildDrafts: true
+buildFuture: true
+buildExpired: true
+
 taxonomies:
   tag: 'tags'
   category: 'categories'
