@@ -30,7 +30,7 @@ params:
   env: 'production'
   defaultTheme: 'auto'
 
-  title: "DIY Home Improvement | Guides & Reviews"
+  title: "Home Improvement | Bugs, Paints, Sprayers"
   description: "Trusted step-by-step DIY Home Improvmeent guides and unbiased product reviews."
   robots: "index, follow"
 
