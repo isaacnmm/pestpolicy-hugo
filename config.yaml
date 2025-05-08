@@ -1,9 +1,8 @@
 baseURL: "https://pestpolicy.com/"
 languageCode: "en-us"
-title: "Home Improvement | Guides & Reviews"  # Updated for SEO
+title: "Home Improvement | Guides & Reviews" # Updated for SEO
 theme: 'hugo-PaperMod'
 
-# ===== PRESERVED STRUCTURE =====
 outputs:
   home: ["HTML", "RSS", "JSON"]
   page: ["HTML"]
@@ -18,46 +17,39 @@ outputFormats:
     isPlainText: true
     notAlternative: true
 
-# ===== EXISTING TAXONOMIES (UNCHANGED) =====
 taxonomies:
   tag: 'tags'
   category: 'categories'
 
-# ===== ORIGINAL PERMALINKS (UNCHANGED) =====
 permalinks:
-  posts: "/:slug/"  # Keeping your exact structure
+  posts: "/:slug/" # Keeping your exact structure
 slug:
-  ugly: false  # Preserved
+  ugly: false # Preserved
 
-# ===== SAFE IMPROVEMENTS =====
 params:
   env: 'production'
   defaultTheme: 'auto'
-  
-  # Enhanced Metadata (Safe)
+
   title: "DIY Home Improvement | Guides & Reviews"
   description: "Trusted step-by-step DIY Home Improvmeent guides and unbiased product reviews."
   robots: "index, follow"
-  
-  # New Analytics (Safe Addition)
+
   analytics:
-    google: "G-YXW7V2V9ZT"
-    anonymizeIP: true  # GDPR compliant
-  
-  # Image Optimization (Backward-Compatible)
+    google:
+      SiteVerificationTag: "wcIIamJKWxC3IcPXe02IZlAEWcGk828ZThxeK1w3aUQ" # Nested under analytics.google
+    anonymizeIP: true # This should likely be at the same level as 'google' if it's a general analytics setting
+
   imaging:
     quality: 85
     webp: true
 
-# ===== BUILD OPTIMIZATIONS (SAFE) =====
 build:
   errorOnMissingPagePermalinks: true
   errorOnInvalidPermalinks: true
   writeStats: true
-  useResourceCacheWhen: "always"  # Speeds up builds
+  useResourceCacheWhen: "always" # Speeds up builds
   noChmod: true
 
-# ===== SITEMAP (UNCHANGED STRUCTURE) =====
 sitemap:
   changefreq: "weekly"
   priority: 0.7
