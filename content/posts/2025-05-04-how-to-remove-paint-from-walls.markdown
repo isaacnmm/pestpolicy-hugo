@@ -35,7 +35,7 @@ This method is more labor-intensive but can be effective for small areas or deli
 ### 5. Use a Multi-Step Approach
 In some cases, a multi-step approach works best for removing stubborn paint. Start by applying a paint remover or using a heat gun to remove the majority of the paint.
 
-Once the paint is mostly gone, you can use sandpaper or a power sander to smooth out any remaining paint patches and finish the surface.
+Once the paint is mostly gone, you can use sandpaper or a power sander to smooth out any remaining paint patches and finish the surface - to leave it amazingly clean. 
 
 This combination of methods ensures that you’re left with a clean, smooth wall surface, ready for a fresh coat of paint.
 ### Tips for Removing Paint from Walls
