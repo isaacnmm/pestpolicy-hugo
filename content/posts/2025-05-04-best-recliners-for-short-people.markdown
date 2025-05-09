@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: 7 Best Recliners for Short People 2025 Reviewed
 date: '2025-05-04T19:37:53+00:00'

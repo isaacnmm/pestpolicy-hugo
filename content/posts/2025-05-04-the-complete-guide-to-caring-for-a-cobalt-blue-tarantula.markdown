@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Guide to Caring for a Cobalt Blue Tarantula
 date: '2025-05-04T01:07:50+00:00'

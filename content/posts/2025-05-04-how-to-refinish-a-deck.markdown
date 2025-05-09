@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How to Refinish a Deck
 date: '2025-05-04T01:12:52+00:00'

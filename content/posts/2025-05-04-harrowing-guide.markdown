@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How To Do Harrowing (Land Preparation Guide)
 date: '2025-05-04T18:52:27+00:00'
@@ -25,7 +25,6 @@ come in different sizes and shapes, with the common ones having tines, discs, or
 
 The leveling implements are usually robust and evenly spaced out. Dragging them implement leaves the topsoil refined and it’s recommended for use, especially on large scale farming.
 
-[su_youtube url="https://www.youtube.com/watch?v=-ilK1PnQnBI"]
 ## **What Is The Difference Between Harrowing And Tilling?**
 Many people, especially the inexperienced, will differentiate between plows and harrows when they see them. However, very few will tell you the difference in how they work as both works very closely. Tractors and other ATVs drag both, but they work differently in
 [seedbed preparation - tillers](https://pestpolicy.com/best-tiller-for-raised-beds/)

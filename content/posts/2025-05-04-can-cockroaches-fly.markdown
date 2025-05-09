@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Can Cockroaches Fly? All Roaches deBugged
 date: '2025-05-04T03:38:38+00:00'
@@ -60,7 +60,7 @@ at the back of its head.
 Male American roaches are longer than their female counterparts - with the wings extending 4-8 mm from the pests' abdomen -
 [roach killer for the house](https://pestpolicy.com/best-roach-killer-for-apartments/)
 .
-[su_youtube url="https://www.youtube.com/watch?v=d9nKRmUlsHk&feature=youtu.be"]
+
 American
 [cockroaches are the most popular roaches](https://pestpolicy.com/how-to-get-rid-of-cockroaches/)
 in American commercial properties, apartments, and homes.

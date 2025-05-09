@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How Do You Paint A Ceiling In A Stairwell?
 date: '2025-05-04T01:54:52+00:00'

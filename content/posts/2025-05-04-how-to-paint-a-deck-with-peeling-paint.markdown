@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How To Paint a Deck with Peeling Paint
 date: '2025-05-04T12:03:37+00:00'

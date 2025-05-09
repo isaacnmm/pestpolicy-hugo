@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: 7 Best Riding Lawn Mower for Small Yard 2025
 date: '2025-05-04T11:08:38+00:00'
@@ -24,16 +24,17 @@ It's a quality machine that comes with excellent soft-touch steering – with th
 - The mower offers a comfortable ride with the StepThru Frame plus the mid-back lightly cushioned seat.
 You can quickly move in and out of the mower riding deck and rest. You can easily attach your snow plow to the front of this Troy-Bilt 540cc riding mower.
 However, you can’t attach a grader – you’ll require some heavier Garden Tractor to come with a superior Transmission. Luckily, it also has an attachment allowance for your garden cart that’ll pull around the yard.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Take tight corners in your small yard.
 - The adjustable steering wheel and seat.
 - Quickly raises or lowers the deck to 5 different positions.
 - Easy to clean – has a great deck wash
 - Easy to get in and move out with its “Step-Thru” frame
 - Automatic transmission to ease handling
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - Offers only a single range for reverse mowing
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [2. Poulan Pro P46ZX Small Yard Riding Mower](https://www.amazon.com/dp/B002PD87M8/?tag=p-policy-20)
 Next is this Poulan Pro P46ZX – which brings performance, durability, and top comfort. With a 22-HP engine plus a 2-bladed steel deck (42 inches) – this mower will give you precise and clean.
 You’ll love the zero-turn radius as this will cut the working time as reduce the amount of tear and wear in your riding mower. Also, the mower comes with an electric clutch.
@@ -45,16 +46,17 @@ If you need a unique grass cutting height – this mower allows an adjustment to
 The riding mower provides a zero-turn radius, and thus, you can easily mow the grass around different obstacles in your yard. On speed, the tractor allows a one to six miles-per-hour mowing speed in the forward direction.
 Luckily, this tractor is very beginner-friendly – it has no learning curve, and thus most noobs can easily mow around their yard even on their first day.
 Further, Poulan Pro P46ZX offers top comfort with its handle grips (foam-padded) plus its high seatback.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - The dual hydro-gear allows smooth operation.
 - Has a 22 Horsepower that’s very powerful
 - Has a Zero-turn radius that’s great for mowing small yards
 - Comes with an Electric clutch
 - Won’t require re-mowing
 - Offers cleaner cuts even with high mowing speed.
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - Not recommended (just like other zero-turn mowers) for steep/ hilly yards slopes
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [3. Cub Cadet XT1 Small Riding Mower](https://www.amazon.com/dp/B017S0JE1K/?tag=p-policy-20)
 With this Cadet xt-1 Enduro, your legs won’t be dangling like on other riders – you can move the seat forward.
 Its gas tank is also situated on the outside – you can also check the scale to see the fuel level - thus, you’ll not be filling up against hot gas and hot motor.
@@ -67,7 +69,7 @@ It has a 42” cutting deck, an 18 HP OHV engine, and its smooth hydrostatic tra
 The Cub Cadet Model offers top comfort, has soft-grip steering, adjustable seating plus an excellently positioned cup holder. You’ll also love the lighting in this mower with the installed headlights.
 It has the 16” turning radius plus rear-wheel drive that allows excellent handling and traction – this allows even a beginner to easily reach those hard-to-mow corners.
 The push-button and fender-mounted lever makes it easy to lower and raise the tractor’s cutting deck.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - 42 inches cutting deck
 - Has a push-button that allows cruise control
 - The 16-inch turning radius allows excellent steering
@@ -75,9 +77,10 @@ The push-button and fender-mounted lever makes it easy to lower and raise the tr
 - Great for slightly uneven terrain that offers a smooth ride
 - Has a sturdy frame
 - You can attach mulching and snow plow accessories
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - Require more learning for reverse mowing
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### 4.[Poulan Pro PP155H42 for Small Yard - Best for Rough Terrain](https://www.amazon.com/dp/B019F8TWB0/?tag=p-policy-20)
 Poulan Pro PP155H42 also offers performance, durability, and strength – this is cheers to its cutting deck made from 46-inch reinforced-vented steel plus the Hydro-transmission system, which makes it very easy to handle.
 Its rear turf saver tires are 22 inches – and won‘t interestingly cause damage to your yard while running on the mowing process.
@@ -90,16 +93,17 @@ Poulan Pro PP155H42 has six preset cutting heights that enable you to cut the gr
 Its cutting deck has a durable build, and it draws air, allowing air circulation – this enables the tractor grass to lift the grass and mow clean.
 Its steering wheels are ergonomically designed to provide comfort and reduce fatigue.
 The mower has a 6-inch turning radius that’ll allow you to easily maneuver around different obstacles and tight corners in your small yard. To enhance this, its front axle is made from cast iron and rotates to each mowing.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Has a floating deck to enable optimal access to the yard grass for a clean and even cutting.
 - The hydrostatic transmission allows easy and automatic speed control
 - Won’t overheat like other riding lawn mowers meant for small yards – it has a cooling vent to allow this.
 - Provides durability and performance
 - The rear wheels are 20-inch (relatively large) to provide excellent traction
 - The stamped mowing deck has a 10-years warranty
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - Not great for uphill mowing due to its being heavy
-[/su_list][/su_box][/su_column] [/su_row]
+
 https://www.youtube.com/watch?v=kuLgVjA59-o&feature=youtu.be
 ### [5. Husqvarna YTA24V48 24V Mower with 48” Reinforced Cutting Deck](https://www.amazon.com/dp/B019ZN119G/?tag=p-policy-20)
 Husqvarna YTA24V48 has an auto-transmission that allows fast operation. You’ll love electric clutch, charge port, choke-less start -Great for mowing small or big yard or farm – like other pedal mowers.
@@ -109,15 +113,16 @@ This Husqvarna YTA24V48 will easily cut the grass within a very short time – Y
 It needs limited power with the pedal-controlled transmission that enables it to provide excellent grass-cutting power.
 This mower is highly versatile - you can add accessories such as mulching kits, snow removal, and towing.
 It comes with a steering wheel that’s super ergonomic plus an adjustable seat – which makes grass-cutting to be as easy as driving your car.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - 48 inch reinforced cutting deck
 - Its auto transmission is considered FAST
 - Offers 48 inches cutting width
 - Will mow the yard clean
 - You can add other accessories such as mulching, snow removal, and towing.
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - None
-[/su_list][/su_box][/su_column] [/su_row]
+
 ## How to Choose a Riding Lawn Mower
 [embed]https://www.youtube.com/watch?v=J8TIvCYLJIg&feature=youtu.be[/embed]
 ## Considerations when Choosing a Riding Lawn Mower

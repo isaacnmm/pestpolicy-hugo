@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How to Overclock Raspberry Pi 3
 date: '2025-05-04T18:44:28+00:00'

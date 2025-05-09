@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Raid Ant Roach Killer Insecticide Spray Review
 date: '2025-05-04T06:20:26+00:00'
@@ -25,7 +25,7 @@ The roach spray kills on contact; it has a fast roach and ant killer whose resid
 ## Active Ingredients - Raid ant roach killer insecticide spray review
 This roach killing spray is made from Imiprothrin (0.100%) and Cypermethrin (0.100%), the ingredient that’ll kill both ants and roaches on contact.
 Most homeowners also use the roach killing aerosol like an indoor residual spray to prevent roaches and ants from getting into your house for about one month. The spray dries fast, will leave no oily residue or foul odor in the place due to the fantastic lemon scent.
-[su_youtube url="https://www.youtube.com/watch?v=Qj5kZ1zAbm8"]
+
 ## Effectiveness against Roach Colony
 Raid Ant &
 [Roach Killer will not be effective in killing](https://pestpolicy.com/combat-max-12-month-roach-killing-bait-review/)

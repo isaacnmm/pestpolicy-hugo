@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How Long Does It Take to Paint a House Interior?
 date: '2025-05-04T08:18:56+00:00'

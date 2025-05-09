@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How to Remove Paint from Wood Trim
 date: '2025-05-04T22:31:21+00:00'

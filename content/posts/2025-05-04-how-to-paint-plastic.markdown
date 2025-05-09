@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How to Paint Plastic (DIY Guide - Pictures)
 date: '2025-05-04T11:25:33+00:00'

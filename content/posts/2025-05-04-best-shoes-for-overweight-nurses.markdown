@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: 7 Best Shoes for Overweight Nurses 2025
 date: '2025-05-04T18:40:57+00:00'
@@ -20,31 +20,7 @@ Also read:
 ## Review: 7 Best Shoes for Overweight Nurses
 ### [1. New Balance Women's 928 V3 Walking Shoe](https://www.amazon.com/dp/B01N1I12JN/?tag=p-policy-20)- Best Shoes for Overweight Nurses
 The New Balance Women's 928 V3 provides a supportive and comfortable walking experience. You can actually wear the shoe for prolonged hours without feeling any discomfort. It has a supportive base that ensures you remain stable as you attend to your patients.
-[](https://www.amazon.com/dp/B01N1I12JN/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MNJWWKZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07NBKSBH7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007C1O3SK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KJPJRVR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01CTGOD9G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07BVZ6YRR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078SYZSVK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007OWTO4A/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0012HR2I8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The 928 V3 features durable Ndurance rubber on its outsole. Thus, the outsole provides needed traction on various surfaces including all hospital surfaces. The sole also doesn’t leave scratches on polished floors.
 
 The Walking Strike Path design guide your feet during walking to ensure you have a smooth heel to toe transition. Flex grooves located at the base of the sole ensure natural movement of feet while providing additional grip.
@@ -54,7 +30,7 @@ The upper of 928 v3 features a durable leather material. The material provides n
 The toe box and midfoot areas have leather overlays that protect the shoes against abrasion while offering extra lateral support when you tighten the laces.
 
 The midsole features ABZORB technology that helps in shock attenuation to prevent pain on your lower back. The polyurethane (PU) sockliner is removable and allows you to insert orthotics. The anti-microbial properties in the sockliner prevent disease-causing microorganisms and odors.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - A comfortable shoe for prolonged walking and standing
 - Offers excellent arch support
 - Available in various widths
@@ -63,40 +39,17 @@ The midsole features ABZORB technology that helps in shock attenuation to preven
 - Provides stable platform
 - Features high-quality materials
 - Provides good cushioning
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Some people found the style of this shoe unappealing
 - Others considered it too expensive
 - Some complained of durability issues like the outsole deteriorated after few months of use
-[/su_list][/su_box][/su_column] [/su_row]
+
 Also Read:
 [Best Shoes for Claw Toes](https://pestpolicy.com/best-shoes-for-claw-toes/)
 ### [2. Mizuno Men's Wave Rider 23 WAVE KNIT Running shoe](https://www.amazon.com/dp/B07NPJGZQ3/?tag=p-policy-20)
 The Mizuno Men's Wave Rider 23 is another great shoe for overweight nurses. The shoe offers comfort and support while walking. Most people love the Rider 23 because of its excellent breathability, flexibility, and protection.
-[](https://www.amazon.com/dp/B07NPJGZQ3/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MNJWWKZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07NBKSBH7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007C1O3SK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KJPJRVR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01CTGOD9G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07BVZ6YRR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078SYZSVK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007OWTO4A/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0012HR2I8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The well-knitted upper of Rider 23 features DynamotionFit technology that ensures a secure fit and prevents buckling of the heel collar during walking or running. The Waveknit upper construction naturally stretches with your foot without compromising on breathability.
 
 To ensure extra comfort on the underfoot, the Wave Rider 23 features a unique U4icX Strobel Lasting board. The Anatomical Sockliner provides you a softer feel inside the shoe while ensuring excellent cushioning.
@@ -106,45 +59,22 @@ The midsole of Mizuno WaveKnit 3 has SmoothRide technology that incorporates U4i
 The Rider 23 also incorporates the Mizuno Wave technology in its construction. This cushioning helps in shock attenuation while providing a stable run for injury risk-free walks. The flex controllers on the outsole increase the shoe’s flexibility while
 
 The outsole uses a full-blown rubber compound that provides superior traction and protection against abrasion. The rubber compound also provides underfoot cushioning. The heel section features the X10 carbon rubber that provides extra traction and helps to reduce the overall weight of the shoe.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Lightweight
 - Supportive
 - Highly durable
 - Comfortable
 - Delivers excellent traction
 - Exceptional cushioning
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - A customer complained that the padding on the ankle section was a bit bulky
-[/su_list][/su_box][/su_column] [/su_row]
+
 Check:
 [Best Sandals for Lower Back Pain](https://pestpolicy.com/best-sandals-for-lower-back-pain/)
 ### [3. ASICS Women's Gel-Nimbus 18 Running Shoe](https://www.amazon.com/dp/B00YB20YT0/?tag=p-policy-20)
 ASICS Women's Gel-Nimbus 18 also finds its spot on the best shoes for overweight nurses. It’s highly comfortable and comes with superior technologies that allow it to withstand prolonged standing or walking.
-[](https://www.amazon.com/dp/B00YB20YT0/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MNJWWKZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07NBKSBH7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007C1O3SK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KJPJRVR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01CTGOD9G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07BVZ6YRR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078SYZSVK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007OWTO4A/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0012HR2I8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The outsole of Nimbus 18 features AHAR™, which is a durable rubber compound that can withstand wear and tear of daily use. The lightweight outsole delivers reliable traction and protection against abrasion.
 
 The outsole also features deep flex grooves that contribute to the shoe’s responsiveness encouraging the foot to move naturally. The grooves also provide additional traction, especially on wet or dry surfaces. It also facilitates a smooth heel to toe transition.
@@ -156,87 +86,41 @@ The lacing system allows you to adjust the shoe to your comfort level. This help
 Another feature worth mentioning is the Gel™ technology midsole. This technology provides needed cushioning while helping in shock absorption. The technology also responds to your natural gait for a more responsive ride.
 
 The shoe also utilizes soft FlyteFoam material that’s 55% lighter than other cushioning materials. It offers extra cushioning and support to the foot. Trusstic™ technology provides needed stability.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Comfortable
 - Supportive
 - Durable
 - has a spacious toe box
 - Ideal for walking or standing for long hours
 - Stylish
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Expensive
-[/su_list][/su_box][/su_column] [/su_row]
+
 Check:
 [Best Dress Shoes for Back Pain](https://pestpolicy.com/best-dress-shoes-for-back-pain/)
 ### [4. Skechers Men's Equalizer Persistent Slip-On Sneaker](https://www.amazon.com/dp/B00R2KN4YU/?tag=p-policy-20)
 Skechers Men's Equalizer is perfect for overweight male nurses who are looking for comfort, support, and a shoe that would take them through their busy day.
-[](https://www.amazon.com/dp/B00R2KN4YU/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MNJWWKZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07NBKSBH7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007C1O3SK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KJPJRVR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01CTGOD9G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07BVZ6YRR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078SYZSVK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007OWTO4A/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0012HR2I8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The shoe is a mix of textile and synthetic that gives the upper the stylish-casual look. The sole is synthetic and doesn’t leave scuff marks on surfaces. It also provides traction on various surfaces.
 
 The Memory foam insole provides underfoot cushioning and support. This feature allows the shoe to withstand long hours of walking and standing.
 
 The midsole unit has FlexSole compound that’s lightweight and provides needed shock attenuation while protecting your feet against hard ground impact.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Slip-on shoe
 - Comfortable
 - Excellent cushioning
 - Lightweight
 - Provides excellent shock absorption
 - Ideal for standing or walking for hours
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - A customer complained that the insole after months of use
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [5. Saucony Women's Triumph Iso 5 Running Shoe](https://www.amazon.com/dp/B07G4D5T5M/?tag=p-policy-20)
 This long-distance running shoe offers excellent cushioning, comfort, and fit. Overweight nurses can wear the Saucony Triumph Iso 5 for their daily long hours routine without the usual tear and tear experienced by other shoe brands.
-[](https://www.amazon.com/dp/B07G4D5T5M/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MNJWWKZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07NBKSBH7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007C1O3SK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KJPJRVR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01CTGOD9G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07BVZ6YRR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078SYZSVK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007OWTO4A/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0012HR2I8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 Most obese women swear by the support and comfort the Triumph Iso 5 provides while walking or running.
 
 The upper section of Triumph ISO 5 utilizes jacquard mesh, which is a cloth-like fabric that allows fresh air into the shoe for the comfortable walking experience. The padded tongue and collar cushion the upper section of the foot while providing additional comfort and support.
@@ -246,90 +130,44 @@ The midsole features EVERUN cushioning whose work is to offer support to your fe
 The Triumph ISO 5 also features FORM FIT footbed that provides crucial support and comfort to the underfoot.
 
 The outsole features Tri-Flex Crystal rubber that protects against wear and tear. It also provides underfoot cushioning while providing reliable traction on various surfaces. The Zigzag flex grooves enhance the bendability of the base for a more comfortable walking experience.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Offers excellent support
 - Breathable upper
 - Excellent cushioning
 - Roomy toe box
 - Comfortable
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Some people with narrow feet found the shoe too wide.
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [6. Skechers Sport Women's Sneaker](https://www.amazon.com/dp/B00AHJLIUK/?tag=p-policy-20)
 Skechers Sport Women's Memory Foam Sneaker is also ideal for overweight nurses. This slip-on comfortable shoe is supportive, well-cushioned, and can withstand walking or standing for prolonged hours.
-[](https://www.amazon.com/dp/B00AHJLIUK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MNJWWKZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07NBKSBH7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007C1O3SK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KJPJRVR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01CTGOD9G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07BVZ6YRR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078SYZSVK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007OWTO4A/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0012HR2I8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The upper of the shoe is 100% Faux leather that features a mesh fabric construction that allows free flow of air into the shoe ensuring your feet remain fresh and dry throughout your shift.
 
 The outsole features a durable outsole that provides important traction on various surfaces. The outsole also protects the shoe against abrasion. The outsole also has Flex grooves that provide extra grip while encouraging the foot to maintain natural motion.
 
 The memory form insole provides needed underfoot cushioning for extra comfort and support to your feet while walking.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Breathable upper
 - Comfortable
 - Cushioned
 - Durable
 - Reliable traction
 - Lightweight
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Some customers complained that The memory foam is not durable
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [7. Brooks Men's Addiction Walker Walking Shoes](https://www.amazon.com/dp/B0012ILF94/?tag=p-policy-20)
 Brooks Men's Addiction Walker is ideal for overweight male nurses who crave all-day comfort during the long working hours. Most heavyweight people agree that the shoe relieves stress and pressure on feet while alleviating common discomforts.
-[](https://www.amazon.com/dp/B0012ILF94/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MNJWWKZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07NBKSBH7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007C1O3SK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KJPJRVR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01CTGOD9G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07BVZ6YRR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078SYZSVK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007OWTO4A/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0012HR2I8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The outsole unit of Brooks Addiction Walker features an exceptional slip-resistant compound that can withstand walking on hard surfaces like concrete, asphalt, and many others. Around the forefoot section, there’s an MC Pod construction that allows safe foot contact with the walking surface. This means you can maintain a stable and balanced position during walking.
 
 The upper features full-grain leather material. This material is durable and provides a soft comfortable feel for the feet. The interior of the shoe features soft breathable fabric that allows fresh air into the shoe allowing your feet to stay cool throughout your shift.
 
 The midsole of this addiction walker features BioMoGo DNA that provides needed cushioning and support. The shoe also has a DNA compound that has the ability to change depending on the amount of force or pressure applied. This means, when an overweight walker wears the shoe, the DNA firms the shoe to protect the feet from any injury.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Best shoes for walking
 - Highly comfortable
 - Reliable arch support
@@ -337,9 +175,10 @@ The midsole of this addiction walker features BioMoGo DNA that provides needed c
 - Durable
 - Accommodates custom orthotics
 - Stylish
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Some customers complained the shoe is heavy and unappealing
-[/su_list][/su_box][/su_column] [/su_row]
+
 ## Buyers’ Guide For Best Shoes for Overweight Nurses
 The best Shoes for obese women should be supportive. Choose a shoe with engineered mesh construction that allows air circulation. Heel counter prevents accidental shoe removal and holds the feet securely in place. Consider the following factors
 ### Comfort

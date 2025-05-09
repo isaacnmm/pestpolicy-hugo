@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Xbox One Elite Controller Review 2025 Reviewed
 date: '2025-05-04T04:08:26+00:00'
@@ -45,7 +45,7 @@ Pros:
 - Has usable Bumper buttons
 Cons:
 - Feels weighty
-[/su_list][/su_box][/su_column][/su_row]
+
 ## Conclusion
 Finally, the Xbox Elite is here with all its great innovations as shown in the Xbox One Elite Controller Review.
 - However, the controller is considered to favor the gaming experts due to its cost and high level of customization capability.

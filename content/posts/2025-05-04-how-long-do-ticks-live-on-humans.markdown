@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How Long Do Ticks Live on Humans?
 date: '2025-05-04T16:34:20+00:00'

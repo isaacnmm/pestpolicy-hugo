@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Jordan Bartee at the CalArts Machine Lab
 date: '2025-05-04T21:53:59+00:00'

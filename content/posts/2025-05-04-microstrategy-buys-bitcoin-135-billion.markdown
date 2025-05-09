@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: MicroStrategy Buys Yet More Bitcoin, Taking Recent Purchases to $13.5 Billion
 date: '2025-05-04T03:25:22+00:00'

@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How To Use a Tiller To Remove Grass
 date: '2025-05-04T23:04:40+00:00'
@@ -14,7 +14,7 @@ Removing grass on your yard, lawn or garden can be fairly tiring, costly and tim
 Besides a perfect tilling process will loosen the soil and give your plants, crops, fruits, and vegetables an opportunity to grow abundantly. So, below I’ve detailed how to use a tiller to remove grass - the process if simple, that is if you have a good tiller.
 **In summary, how to use a tiller to remove grass; clean the grassed area, water the soil – if land is hard and dry, cut any long grasses or weeds, set the tiller on the grassed area, rotate the tiller tines, and finally till repeatedly until satisfied. **
 ## Details: How to Use a Tiller to Remove Grass
-[su_youtube url="https://www.youtube.com/watch?v=kPgEFFmANXM"]
+
 ### 1. Clean the Grassed area
 After picking the grassed area you want to till, it’s now time to clean up any obstacles that may hinder the tilling process. Definitely, your tiller is powerful but it won’t easily cut through large debris and rocks – even if it’s a heavy-duty tiller.
 Therefore, before you start the tilling process pick up any sticks, stones, rocks, or debris on the ground. Further, note areas that have large (irremovable) roots and roots so that you’ll easily avoid them as you’re tilling your grass.

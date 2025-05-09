@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: 12 Chic Eco-Friendly Decor Ideas That Will Save the Planet and Your Wallet!
 date: '2025-05-04T01:57:06+00:00'

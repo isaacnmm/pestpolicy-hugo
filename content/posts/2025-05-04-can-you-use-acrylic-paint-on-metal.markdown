@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Can You Use Acrylic Paint On Metal?
 date: '2025-05-04T06:21:16+00:00'

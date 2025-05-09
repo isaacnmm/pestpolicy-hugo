@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Do Fake Wasps Nests Work? (My Detailed Response)
 date: '2025-05-04T08:24:19+00:00'

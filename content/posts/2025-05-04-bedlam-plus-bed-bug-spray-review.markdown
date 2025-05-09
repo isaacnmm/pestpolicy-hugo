@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Bedlam Plus Bed Bug Spray Review
 date: '2025-05-04T00:51:25+00:00'
@@ -45,13 +45,13 @@ while still reducing their hatching rate. But, cover up your aquariums to protec
 - Will reach[bed bugs in their hiding](https://pestpolicy.com/where-do-bed-bugs-hide/)places
 - Will[kill bed bug eggs](https://pestpolicy.com/bed-bug-eggs/)and the adults
 - The preferred formula by pest exterminators
-The Good:000000" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+The Good:000000" radius="0"]
 - Leave[suitable bed bug killing](https://pestpolicy.com/does-dryer-kill-bed-bugs/)residue
 - It's a water-based[bed bug killing formula](https://pestpolicy.com/does-lysol-kill-bed-bugs/)
 - Has high efficacy compared to other[bed bu killers](https://pestpolicy.com/bed-bug-bully-review/)
 - Won't stain your water-safe surfaces and fabrics
 - [Safe bed bug control](https://pestpolicy.com/can-bed-bugs-live-in-carpet/)formula
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#000000" radius="0"][su_list icon="icon: ban" icon_color="#bf000a"]
+
 - Will only[kill bed bugs on contact](https://pestpolicy.com/does-ammonia-kill-bed-bugs/)
 **Caution:**
 [Steamers for Bed Bugs](https://pestpolicy.com/best-bed-bug-steamer/)

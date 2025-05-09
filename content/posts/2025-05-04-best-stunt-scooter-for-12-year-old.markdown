@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: 7 Best Stunt Scooter For 12 Year Old 2025
 date: '2025-05-04T03:32:32+00:00'
@@ -123,8 +123,6 @@ This scooter also has a super useful steel brake system that allows emergency st
 More than that, the scooter has an amazing handlebar that comes with exceptional bike-style grips to ensure you have comfort as you do your tricks and turns.
 
 Overall, the Mongoose stunt scooter is an amazing pick for a beginner scooter rider who wants to learn stunts and tricks. This scooter will improve his skill level while providing the needed safety.
-
- 
 
 Pros
 - Heavy-duty frame

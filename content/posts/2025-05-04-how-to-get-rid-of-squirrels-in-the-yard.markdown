@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How To Get Rid of Squirrels in the Yard
 date: '2025-05-04T21:22:44+00:00'

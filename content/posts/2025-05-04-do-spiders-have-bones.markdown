@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Do Spiders Have Bones?? Exoskeleton?
 date: '2025-05-04T19:01:49+00:00'
@@ -30,7 +30,7 @@ The endoskeleton offers support to its organs like
 and maintain the animals size and shape.
 ## Exoskeletons offer Spiders Body Support
 As we've noted above, spiders have an exoskeleton as compared to having an internal skeleton created from bones. So, what's these exoskeletons and what makes it up?
-The arthropod's exoskeleton is made from chitin- which covers its body outer surface to offer support, protection, and structure. Thus, the exoskeleton will be shed (through molting) as the spider grows and develops. So, below is a tarantula shedding her exoskelton: [su_youtube url="https://www.youtube.com/watch?v=5IRhQ75bq7U"]
+The arthropod's exoskeleton is made from chitin- which covers its body outer surface to offer support, protection, and structure. Thus, the exoskeleton will be shed (through molting) as the spider grows and develops. So, below is a tarantula shedding her exoskelton: 
 ## How Spiders Benefit from the Exoskeletons
 Compared to endoskeletons, exoskeletons will provide more protection because it covers the whole spider's body while the bones would only be located internally.
 Also, exoskeletons enable the spider's muscles to achieve more leverage for movement, lifting, or picking objects - this is better than in the animals with endoskeletons.

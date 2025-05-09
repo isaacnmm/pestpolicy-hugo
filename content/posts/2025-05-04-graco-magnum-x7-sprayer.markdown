@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Graco Magnum X7 Sprayer Review
 date: '2025-05-04T22:28:01+00:00'

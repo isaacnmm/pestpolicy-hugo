@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: University of Oregon
 date: '2025-05-04T13:48:22+00:00'

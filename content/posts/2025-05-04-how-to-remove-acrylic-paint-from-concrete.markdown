@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How to Remove Acrylic Paint from Concrete
 date: '2025-05-04T04:22:56+00:00'

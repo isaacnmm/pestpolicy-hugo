@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Do Mosquito Bracelets Work?
 date: '2025-05-04T12:30:29+00:00'

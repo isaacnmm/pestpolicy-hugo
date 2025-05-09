@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: 7 Best Shoes for Lateral Movement 2025
 date: '2025-05-04T06:05:15+00:00'
@@ -17,24 +17,7 @@ Check out the following top Shoes for Lateral Movement. Related:
 ## Review: 7 Best Shoes for Lateral Movement
 ### [1. Nike Women's Metcon 5 X Training Shoes](https://www.amazon.com/dp/B07VVRRRBG/?tag=p-policy-20)
 Nike Metcon 5 X is an excellent cross-training shoe that provides comfort, stability, and durable construction. It has Flywire threads and a lacing system that interconnect to provide support for lateral or side-to-side movement.
-[](https://www.amazon.com/dp/B07VVRRRBG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07DYG7C3V/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788Y2QQH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The Metcon 5 X also features a padded heel collar that provides support to the rearfoot. Using a thick synthetic leather and TPU heel clip the heel provides needed stability during movements. This promotes firmer and secure foothold during intense lateral movements.
 
 The upper features a tightly woven mesh that provides a hug to the foot. The Haptic chain-link strengthens the upper mesh. It also protects the upper against damage. The mesh also offers excellent breathability and ensures feet remain fresh throughout the workout session.
@@ -48,38 +31,22 @@ This cross-fit lateral movement shoe provides you the option to adjust the heel 
 If you use the Hyperlift in these women’s cross fit shoes, the heel will increase from 4mm to 6mm while the men’s version increases to 8mm. The insert helps to provide comfort and ease ankle mobility during various movements including squats.
 
 The outsole features a reliable platform that is wide enough to provide needed stability during lateral movements, weightlifting, and other cross fit exercises. The outsole is also all rubber and provides reliable traction and durability.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Wide platform for more stability
 - Comfortable
 - Flexible forefoot
 - Provides a snug fit
 - Provides excellent traction
 - Durable
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - The rubber panels make the shoe look heavy and less appealing
-[/su_list][/su_box][/su_column] [/su_row]
+
 Checkout:
 [Best Stability Running Shoes for Overpronators](https://pestpolicy.com/best-stability-running-shoes-for-overpronators/)
 ### [2. Reebok Women's Nano 9 Cross Trainer Shoes](https://www.amazon.com/dp/B07T3145QP/?tag=p-policy-20)
 Most users have applauded Reebok Nano 9 for its all-in-one ability. It allows rope-climbing, weightlifting, rope climbing, walking, running, and multidirectional and lateral movements among many other exercises.
-[](https://www.amazon.com/dp/B07T3145QP/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07DYG7C3V/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788Y2QQH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The Nano 9 boosts of comfort, support, cushioning, and stability. It’s a highly versatile cross-training shoe worth buying.
 
 The Nano 9 features a translucent rubber cover that extends to the midsole. The rubber covers a bigger area allowing steady movement of feet during heavy lifting, lateral and multidirectional movements. The heel section is also wide to ensure enhanced stability.
@@ -91,36 +58,20 @@ You can also use Nano 9 for running or jumping exercises thanks to the midsole E
 The outsole features two types of rubber compounds that provide excellent traction on various surfaces. The tread pattern beneath the outsole sticks firmly on to the surface and allows the wearer to remain stable during lateral movements.
 
 The Nano 9 also features a low drop sole unit that provides the wearer close ground contact. The low drop (4mm) ensures the wearer’s foot is flat allowing them to better control their feet during the various cross fit exercises.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Highly versatile
 - Offers excellent stability
 - Comfortable
 - Offers stability during lateral movements
 - Flex weave upper provides excellent breathability
 - Provides superior flexibility
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Some customers complained the outsole came apart after a few months of use
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [3. ASICS Gel-Quantum 180 2 MX Men's Running Shoe](https://www.amazon.com/dp/B073Q6GJX7/?tag=p-policy-20)
 The Asics Gel Quantum 180 2 MX is a road running shoe. It accommodates many other exercise activities including side-to-side/ lateral movement, thanks to its robust construction and pleasant underfoot experience.
-[](https://www.amazon.com/dp/B073Q6GJX7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07DYG7C3V/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788Y2QQH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The Asics 180 2 MX features an outsole unit with a high abrasion rubber compound. The compound protects the entire midsole from harsh surfaces. It also delivers needed traction preventing falls or slipping during lateral movements.
 
 The outsole also has flex grooves that enhance the shoe’s flexibility allowing the foot to move naturally during the gait cycle.
@@ -134,37 +85,21 @@ The forefoot and rearfoot feature a gel technology, which is a cushioning system
 Another amazing feature of Asics Quantum 180 2 MX is the ComforDry™ sock liner that provides additional cushioning. It also has anti-moisture and antimicrobial properties that ensure a clean and healthy in-shoe environment. The Ortholite® last also provides extra cushioning and prevents the accumulation of bacteria and odor.
 
 The upper features a tight weave mesh that has pores, which allows entry of air into the shoe. The heel, medial, and lateral sides have mesh panels stitched on to them, they provide a snug fit to the wearer.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Excellent underfoot cushioning
 - Comfortable
 - Stylish design
 - Durable
 - Breathable and responsive upper
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - A bit bulky
-[/su_list][/su_box][/su_column] [/su_row]
+
 Read also:
 [Best Shoes for Running on Pavement](https://pestpolicy.com/best-shoes-for-running-on-pavement/)
 ### [4. PUMA Men's Tazon 6 Heather Rip Sneaker](https://www.amazon.com/dp/B07FYJ1ZJG/?tag=p-policy-20)
 PUMATazon 6 Heather Rip finds a spot in the best shoes for lateral movement. Most cross-fit trainers have applauded their high comfort levels, excellent traction, and durability.
-[](https://www.amazon.com/dp/B07FYJ1ZJG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07DYG7C3V/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788Y2QQH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The outsole of Puma Tazon 6 Heather Rip features a durable rubber compound. This compound is sticky and grips slick indoor surfaces reliably. The tread pattern provides unmatched traction on outdoor terrain. Thus, the outsole allows the wearer to participate in various workouts and movements without fear of slipping or falling.
 
 The shoe also features Softfoam sockliner, which is a cushioning insole that delivers a comfortable and supportive footbed. It also prevents in-shoe foot sliding especially during lateral movements.
@@ -176,34 +111,18 @@ The arch area of the foot has a TPU shank. The shank protects the arch from twis
 The upper of Puma Tazon 6 Heather Rip utilizes the heather fabric that’s strengthened with synthetic overlays. The overlays boost the shape and structure of the upper while protecting it from abrasion.
 
 Other than that, this shoe utilizes a traditional lacing system to allow the wearer to tighten or loosen according to their comfort. Extra cushioning on the rear part of the shoe provides comfort and protection from skin irritation.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Comfortable
 - True to size
 - Ideal for workout and casual wear
 - Stylish with many color options
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - A person complained about visible glue stains on edges of the outsole
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [5. Adidas Women's Crazytrain Elite Cross Trainer](https://www.amazon.com/dp/B07Q47YSQR/?tag=p-policy-20)
 The Adidas Crazytrain Elite is a comfortable and versatile cross-training shoe that’s ideal for lateral movement. It features a TPU bar on the lateral side that provides needed stability during lateral movements.
-[](https://www.amazon.com/dp/B07Q47YSQR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07DYG7C3V/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788Y2QQH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The outsole of Crazytrain Elite features a durable rubber material that offers protection against harsh terrains or surfaces. The outsole also has a multidirectional tread pattern that provides traction allowing you to engage in different movements without fear of falling or slipping.
 
 The upper features a lightweight-engineered mesh material that’s highly breathable and allows free air entry into the shoe. The tightly woven upper enhance its durability during strenuous activities and rope climbing.
@@ -211,37 +130,20 @@ The upper features a lightweight-engineered mesh material that’s highly breath
 The Crazytrain Elite has a midsole that features Adidas’ boost technology. This technology provides midfoot cushioning. it allows the wearer to engage in multiple activities without any injuries.
 
 The toe box area, heel section, and the external part of the midfoot features rubber overlays that protect these areas from abrasion or harsh terrains.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Boost technology supports lateral foot movement
 - Comfortable
 - Durable
 - Supportive
 - Breathable upper
 - Excellent arch support
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Runs big for some wearers
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [6. NOBULL Men's Training Shoes and Styles](https://www.amazon.com/dp/B082P7GLMZ/?tag=p-policy-20)
 The Nobull Trainer is a lightweight, highly durable, flexible, and steady cross trainer that you can use in workouts that involve lateral movements.
-[](https://www.amazon.com/dp/B082P7GLMZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07YS4JM7K/ref=as_li_ss_il?&th=1&linkCode=li2&tag=p-policy-20&linkId=e2f74e2606e37db715f3db44e778acd4&language=en_US)
-[](https://www.amazon.com/dp/B07DYG7C3V/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788Y2QQH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The outsole features a durable carbon rubber compound. This rubber compound has the ability to withstand indoor and outdoor surfaces. Allowing you an option to choose where to do your workout sessions. The multi-directional Lug pattern provides traction allowing the wearer to engage in lateral movement with ease.
 
 The Nobull trainer features a full-length midsole unit that’s designed to provide needed steadiness during strenuous cross-fit training. It also helps to reduce shock and promotes the natural movement of the foot during plyometrics.
@@ -249,7 +151,7 @@ The Nobull trainer features a full-length midsole unit that’s designed to prov
 The upper features one-piece SuperFabric construction. The SuperFabric is durable and can endure abrasion caused by the high-intensity workout. The upper is flexible and encourages the foot to move naturally. On top of that, the upper construction is highly breathable and allows free entry of air into the shoe.
 
 The interior of the shoe also has an anatomical insert that improves the shock absorption capacity of the midsole. The molded sockliner provides extra underfoot cushioning.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Versatile and durable
 - Lightweight and breathable design
 - Comfortable
@@ -258,29 +160,13 @@ The interior of the shoe also has an anatomical insert that improves the shock a
 - Roomy toe box idle for[wide footed runners](https://pestpolicy.com/best-running-shoes-for-men-with-wide-feet/)
 - Reliable traction
 - Supportive
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - According to some buyers, the sole is a bit stiff and may cause some discomfort
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [7. Under Armour Men's Ultimate Speed Nm Sneaker](https://www.amazon.com/dp/B076S56JDS/?tag=p-policy-20)
 Under Armour, Ultimate Speed offers a perfect mix of comfort, flexibility, and steadiness. A highly versatile shoe that accommodates various workouts and movements allowing the wearer to transition from one activity to the other without changing their training shoes.
-[](https://www.amazon.com/dp/B076S56JDS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07DYG7C3V/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788Y2QQH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The outsole of Under Armour Ultimate Speed features a non-slip rubber compound. This compound offers reliable traction on both indoor and outdoor surfaces. The grooves beneath the outsole enhance the shoe’s flexibility and grip. Hence, you can do lateral movements without fear of slipping.
 
 This cross-training shoe for lateral movement utilizes EVA form. This form is largely on the forefoot section and it provides excellent shock absorption and soft cushioning allowing you to flex naturally. The shoe also provides medial arch support.
@@ -290,7 +176,7 @@ The EVA form insole offers additional comfort and prevents foot slippage while d
 The Dynamic shroud construction on the forefoot and midfoot offers lateral stability and support allowing you to engage in lateral/ side-to-side movement
 
 The upper of Under Armour Ultimate Speed features a highly breathable mesh material that allows entry of air into the shoe for a more comfortable in-shoe experience.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Highly versatile
 - Comfortable
 - Excellent arch and ankle support
@@ -298,9 +184,10 @@ The upper of Under Armour Ultimate Speed features a highly breathable mesh mater
 - The outsole provides reliable traction
 - Exceptional stability
 - Lightweight
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - You might need to break in on the shoes
-[/su_list][/su_box][/su_column] [/su_row]
+
 ## Buyers’ Guide for Best Shoes for Lateral Movement
 ### Comfort
 When choosing the best shoes for lateral movement, your comfort should come first. A comfortable workout shoe will help you go harder during the training session. Trust me if your training shoes aren’t comfortable you won’t push your maximum, hence, will not achieve your fitness goals.

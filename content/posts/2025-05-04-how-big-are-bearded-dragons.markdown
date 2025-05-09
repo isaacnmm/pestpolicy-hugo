@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How Big are Bearded Dragons?
 date: '2025-05-04T00:02:22+00:00'

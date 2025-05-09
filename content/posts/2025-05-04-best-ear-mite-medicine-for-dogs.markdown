@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: 9 Best Ear Mite Medicine for Dogs 2025
 date: '2025-05-04T14:08:51+00:00'
@@ -18,13 +18,9 @@ Let's get started!
 ## 9 Best Ear Mite Medicine for Dogs 2025
 ### 1.[ZYMOX Otic Dog Ear Treatment - Top Editor's Pick](https://www.amazon.com/dp/B0025YOJXS/?tag=p-policy-20)
 ZYMOX, a USA made product that’s quick acting – it’ll start working immediately on application. Luckily, the 1% Hydrocortisone in this medicine will remove all the all accumulated debris without irritating your Dog.
-[](https://www.amazon.com/dp/B0025YOJXS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B06XHXFHWG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B009QAPKL4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0015I3ESG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00E1N07LY/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
 ZYMOX will treat external ear inflammation cause by viral, yeast and bacterial infections on your dogs. The medicine is effective and safe to use ZYMOX on any age of your dogs.
 ZYMOX is non-antibiotic and will remove any antibiotic-resistant organisms in your dog’s ears. Complete dose will require daily application for 7 to 14 days (long lasting).
@@ -39,25 +35,21 @@ How to Use ZYMOX:
 - Use Zymox Otic (with hydrocortisone) to treat dog’s ears having red inflammations.
 - Use Zymox Otic (without hydrocortisone) for prophylactic case on your dog.
 - However, do not clear dog’s ears before and during use.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Contains no antibiotics.
 - Deep penetration.
 - Easy to use.
 - No side effects on extended use.
 - Long lasting – 7 to 14 daily application.
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - For dogs only.
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### 2.[Curaseb - Dog Ear Mite Treatment - Close Second](https://www.amazon.com/dp/B01N4NZNSN/?tag=p-policy-20)
 Curaseb is one of the best dog medicines for ear mites. It is a veterinary recommended product that efficiently help treat your dog against waxy/black discharge and smelly ears.
-[](https://www.amazon.com/dp/B01N4NZNSN/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01N4NZNSN/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=f0313c21e8563fe62476cc18e6216eed)
-[](https://www.amazon.com/dp/B06XHXFHWG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B009QAPKL4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0015I3ESG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00E1N07LY/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
 It’s active ingredients (Ketoconazole .1% which is antifungal and anti-yeast) eliminates fungus, yeast and debris effectively. In addition, Curaseb contains Tris-EDTA component (Antibacterial) which treats and inhibits bacterial infections.
 Curaseb is easier and safe to use. You will only need place the nozzle gently and flush on the dog’s infested ear.
@@ -70,26 +62,22 @@ Curaseb won’t irritate or cause discomfort on your dog during or after use –
 - Do not use on breeding ears or eardrums.
 - Avoid eye contact – in case of contact, rinse well with water.
 - Keep off from children.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Quick acting.
 - No smell - leaves pretty smell.
 - Doesn’t cause irritation.
 - Anti-bacteria, anti-fungal and anti –yeast.
 - Veterinary recommended.
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - For dogs and cats only.
 - Dangerous when swallowed
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### 3.[Dog Ear Cleaner Solution - Dog Ear Mite Treatment](https://www.amazon.com/dp/B074VDK9HY/?tag=p-policy-20)
 Dog Ear cleaner is an advance product that will help you treat your dog against ear mites, otitis externa, odor, itching, wax or yeast infection completely.
-[](https://www.amazon.com/dp/B074VDK9HY/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B074VDK9HY/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=0fd041af5b5bb9978c2b4168940a22e9)
-[](https://www.amazon.com/dp/B06XHXFHWG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B009QAPKL4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0015I3ESG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00E1N07LY/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
 With Dog Ear cleaner, you can inhibit any infections that is bacterial or fungal (the product is anti-bacterial/anti-microbial and anti-fungal)
 This product is alcohol free. Your dog won’t be irritated or feel uncomfortable during and after application. The odor eliminator in Dog Ear cleaner leaves apple or kiwi scent behind.
@@ -106,25 +94,22 @@ running on finite technology.
 Multiple applications and use. The product has long history of treating various infections such as ear canal inflammation, parasitic infections and good health promotion on dogs.
 Perfect combinations. Dog Ear Cleaner has combination of the highest quality ingredients that will aid boost a healthy and vibrant life for your dog.
 Variety. The product comes in various packages and quantities that open a choice for you.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Easier to use and Safe for puppies/kittens.
 - Also suitable for cats and Quick acting.
 - No irritation and Veterinary recommended.
 - Anti-fungal, anti-bacteria and ant-yeast.
 - Alcohol free and High penetration.
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - For dogs, cats and horses only.
 - Dangerous to your eyes (when rub).
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### 4.[Doggie Dailies Dog Ear Cleaner](https://www.amazon.com/dp/B01MTMX5W1/?tag=p-policy-20)
 The Doggie Dailies is made in USA in FDA registers factory for your Dog ear mites treatment. It is manufactured using Witch Hazel, Aloe Vera, Tea Tree Oil and Echinacea – a combination that blend effectively.
-[](https://www.amazon.com/dp/B01MTMX5W1/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B06XHXFHWG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B009QAPKL4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0015I3ESG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00E1N07LY/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
 This product removes earwax, debris and dirt on your dog leaving a fresh feeling
 This product is quick acting – it instantly begin to treat your dog on contact.
@@ -138,24 +123,21 @@ The natural ingredients in The Doggie Dailies are able to inhibit future infecti
 2. Rinse into the ear dropwise.
 3. Massage beneath the ear to allow for efficient flow.
 4. Repeat the same daily.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Easier to use – solution and Quick acting.
 - Can be used on dogs and cats.
 - Non-irritating – won’t sting or burn.
 - Odorless – eliminates bad smell.
 - Natural – has Witch Hazel, Aloe Vera, Tea Tree Oil, and Echinacea
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - For dogs and cats only.
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### 5.[Petpost Dog Ear Cleaner for Dogs](https://www.amazon.com/dp/B01A3KSGES/?tag=p-policy-20)
 Petpost is the best natural dog medicine meant for ear mites treatment. It’s an extra-powerful natural coconut oil solution that is blend with palm extracts.
-[](https://www.amazon.com/dp/B01A3KSGES/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B06XHXFHWG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B009QAPKL4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0015I3ESG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00E1N07LY/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
 The plant-based formula in Petpost will help treat your dog’s ears against the following infections:
 - Ear mites, yeast infections or bacterial infections.
@@ -171,23 +153,20 @@ This product guarantees you a 100% healing. It effectively works on contact – 
 - Press the bottle to a administer the medicine drop wise.
 - Massage beneath the ears to allow effective contact action.
 - Repeat this daily.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Easier application and Safe – no chemicals.
 - Non-irritating and Can treat cats.
 - Plant based – natural and Top quality.
 - Extra-power and Affordable
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Can only be used for dogs and cats treatment.
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### 6.[Gerrard Larriett Dog Ear Cleaner](https://www.amazon.com/dp/B07R2M9NNX/?tag=p-policy-20)
 Gerrard Larriett is a rinse solution that will work wonders on your dog’s health care. It’s a veterinary recommended product that will help you eliminate odor and smelly discharge from your dog’s ears.
-[](https://www.amazon.com/dp/B07R2M9NNX/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B06XHXFHWG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B009QAPKL4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0015I3ESG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00E1N07LY/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
 With Gerrard Larriett, you will experience 100% safety during applications and use. Your dog won’t get irritated or feel uncomfortable during or after use. Instead, this product leaves a soft soothing ear relaxation with a natural smells.
 Gerrard Larriett does not contain alcohol, harmful chemicals, perfumes, glycerin or subsing agents and thus will not burn skin on contact.
@@ -195,7 +174,7 @@ This product will help combat ear mites, fungal and bacterial infections efficie
 Gerrard Larriett will give a gentle aromatherapeutic calming experience on application. It is quick acting and efficient – you will only need to administer a few drops on your dog.
 This product acts on contact. It penetrates effectively and efficiently through the ear canal to eardrum cleaning dirt, wax or any clogging along the passage.
 The USA made product has a long performance history and will also treat your cats/kittens against similar infections.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Quick action – work on contact.
 - Non- irritating.
 - Odorless – no smelly emissions.
@@ -204,18 +183,15 @@ The USA made product has a long performance history and will also treat your cat
 - No chemicals, perfumes or alcohol.
 - Veterinary recommended.
 - Has both anti-bacteria & anti-fungal substances.
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - For dogs and cat use only.
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### **7. **[EcoEars - Natural Dog Ear Cleaner](https://www.amazon.com/dp/B008QYVL1Y/?tag=p-policy-20)
 EcoEars is a naturally made dog’s ear mites medicine that works on contact while eliminating infections.
-[](https://www.amazon.com/dp/B008QYVL1Y/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B06XHXFHWG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B009QAPKL4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0015I3ESG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00E1N07LY/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
 The multi-symptoms product will help you treat some of the following infections on your dog:
 - Itching earlobes and Clogged ear canal and eardrum.
@@ -233,16 +209,17 @@ EcoEars works on contact. Its Natural healing formula makes it penetrate effecti
 - Allow your dog to shake its head if need be and Administer the medicine twice per day for 10 to 15 days.
 **Don’ts: **
 Never use it on breeding ears or ruptured eardrums and Never administer oral application on this product.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Easier and safe to use.
 - Long lasting – 10 to 15 daily use.
 - No chemical – purely natural.
 - Non-irritating.
 - Veterinary approved.
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - For eternal use only.
 - Suitable for dogs only.
-[/su_list][/su_box][/su_column] [/su_row]
+
 ## Buyer's Guide: What are the signs of ear mites?
 Your dog/puppy will show some the following signs in case it is suffering from ear mites.
 1. Waxy/dark smelly discharge from the ears.

@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: What it Truly Means to Have Bad Knees?
 date: '2025-05-04T05:03:45+00:00'

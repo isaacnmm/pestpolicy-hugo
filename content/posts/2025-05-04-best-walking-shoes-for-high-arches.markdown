@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: 9 Best Walking Shoes for High Arches 2025 Reviewed
 date: '2025-05-04T07:08:54+00:00'
@@ -19,11 +19,7 @@ But….the foot arch is an important part of your foot since it assists in suppo
 ## Reviews: 9 Best Walking Shoes for High Arches 2025 Reviewed
 ### [1. Brooks Men's Addiction Walker - Brooks High Arch](https://www.amazon.com/dp/B0012HR2I8/?tag=p-policy-20)
 Brooks Addiction Walker is a leather (full-grain) walker suitable for your high arches. The leather tends to give in significantly easily at the toe region, which is great for high arches.
-[](https://www.amazon.com/dp/B0012HR2I8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01BF3WUP8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0177AVE9G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
 It’s excellently designed to help you with overpronation since it’ll give you adequate support in your foot. It’s designed for cushioning, support, and stability.
 To help with your high arches, Brooks has built additional cushioning in the forefoot and heel on the Brooks Addiction Walker. Personally, I noted that the shoe provided enough shock absorption for every step I walked.
@@ -36,11 +32,7 @@ The shoe’s footbed has DNA cushioning and arch support that’ll adapt to each
 .
 ### [2. New Balance MW928 Walker  - New balance Arch Support](https://www.amazon.com/dp/B01NB9K3XO/?tag=p-policy-20)
 New Balance MW928 Walker has its characteristic Rollbar midsole that’ll stabilize your rear foot and hence control over-pronation.
-[](https://www.amazon.com/dp/B01NB9K3XO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01BF3WUP8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0177AVE9G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
 You’ll love that the shoe has a wide width and your big toes’ cap. It has an EVA midsole that is compression molded to offer enough arch support. Read Also:
 [Walking Shoes For Men With Flat Feet](https://pestpolicy.com/best-walking-shoes-for-men-with-flat-feet/)
@@ -50,11 +42,7 @@ The ROLLBAR will increase foot comfort as it prevents inward rolling of your foo
 ### [3. Saucony Men’s Grid Omni](https://www.amazon.com/dp/B000I4SA0A/?tag=p-policy-20)
 ![](/assets/img/e/ir)
 Saucony Men’s Grid Omni offers awesome arch support and is a great walker for people who have Plantar Fasciitis.
-[](https://www.amazon.com/dp/B000I4SA0A/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01BF3WUP8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0177AVE9G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 I noted that the walker provided me with amazing shock absorption and is resilient too. The footwear is biomedically created to help with high arches.
 The walker is not your regular walking shoe but will also great for casual wear, training, or running. Saucony Men’s Grid Omni comes with some compression insole that’ll give you great breathability and top comfort while walking, running, or working.
 Further, the shoe will slow pronation in your foot, particularly for a moderate pronator, and hence maintains your heels and ankles in a balanced and aligned position. However, the shoe might require some extra orthotic insert to alleviate foot pain.

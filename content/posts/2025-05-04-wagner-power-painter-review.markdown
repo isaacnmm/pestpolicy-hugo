@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Wagner Power Painter Review
 date: '2025-05-04T14:15:57+00:00'

@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Can Bed Bugs Climb Metal or Plastic?
 date: '2025-05-04T23:08:56+00:00'

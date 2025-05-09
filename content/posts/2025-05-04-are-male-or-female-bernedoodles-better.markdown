@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Are Male or Female Bernedoodles Better?
 date: '2025-05-04T05:35:51+00:00'

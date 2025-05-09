@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How To Get Rid of Fruit Flies (5 Easy Steps)
 date: '2025-05-04T08:58:03+00:00'
@@ -31,7 +31,7 @@ Remember to use trash bags but also dispose them off daily. However, any bag tha
 Finally, clean up the moist drain as it may have fermenting waste - your may use one of the
 [best drain cleaners](https://pestpolicy.com/best-drain-cleaner/)
 . It'll easily unclog the drains with organic and fermented mater - including those of fruits and vegetables.
-[su_youtube url="https://www.youtube.com/watch?v=3MrOySfY97E"]
+
 ## 2. Apple Cider Vinegar + Dawn Dish Soap
 Apple cider vinegar is the magical best fruit fly trap. But why do fruit flies love v
 inegar? Well, vinegar is
@@ -84,4 +84,3 @@ How to prevent a fruit fly infestation. The surest way of preventing a fruit fl
 Wash Fruits and Vegetables. As noted earlier, fruit flies will also pitch camp on dirty, overripe or rotting produce - fruits and vegetables. Thus, to prevent an infestation, you'll need to thoroughly wash and dry the produce.
 
 Wash your eggplants, broccoli, apples, or melons etc once you get them from your store. The washing process will remove the eggs and adults of these fruit flies.
-

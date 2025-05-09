@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How to Label Plastic Chairs by Scratching
 date: '2025-05-04T00:01:05+00:00'

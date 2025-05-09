@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Can You Drown a Spider? Flush Water Death?
 date: '2025-05-04T00:32:59+00:00'
@@ -40,7 +40,7 @@ that may cause
 [many people annually](https://www.sciencedirect.com/science/article/pii/S1473309912700646)
 .
 ## You Can't Drown A Spider! - Spider Survives Drowning
-[su_youtube url="https://www.youtube.com/watch?v=zh82H3TfhaM"]
+
 ## Alternative Ways to Control Spiders
 Spiders are crawly, creepy arachnids that have 8 legs that tend terrify kids and adults equally. This is particularly so when one finds themselves attached when in an empty apartment.
 You might see some black and white spots on the floor - which will mean you'll have to kill the spiders with any way possible. So, below are some of the methods you can use to kill the arachnids.

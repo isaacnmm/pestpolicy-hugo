@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How to Seal Painted Wood for Outdoor Use
 date: '2025-05-04T03:32:10+00:00'

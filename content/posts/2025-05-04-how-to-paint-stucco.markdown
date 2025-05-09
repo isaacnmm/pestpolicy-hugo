@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How To Paint Stucco -The Correct Way
 date: '2025-05-04T04:37:39+00:00'

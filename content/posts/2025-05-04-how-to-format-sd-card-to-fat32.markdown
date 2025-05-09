@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How to Format SD Card to FAT32 from exFAT
 date: '2025-05-04T04:39:02+00:00'

@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How to Paint a Stairwell
 date: '2025-05-04T12:42:47+00:00'

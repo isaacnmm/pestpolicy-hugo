@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Self-Etching Primer vs Regular Primer
 date: '2025-05-04T03:32:40+00:00'

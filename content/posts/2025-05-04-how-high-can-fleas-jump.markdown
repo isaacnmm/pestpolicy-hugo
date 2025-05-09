@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How High Can Fleas Jump?
 date: '2025-05-04T14:33:10+00:00'
@@ -25,7 +25,7 @@ So,
 **7 inches (18 cm) vertically and 13 inches (33 cm) horizontally (an average 40 - 99 times of the flea's body length) - it's only second to **
 **froghopper. Its hind-most pair of legs are significantly adapted in jumping. Here's how to tell if you have a flea problem. **
 ## How High Can Fleas Jump?
-[su_youtube url="https://www.youtube.com/watch?v=F0e0CEiGfOk"]
+
 The fleas's legs are long and appropriately build for jumping. The bug provides a forceful and quick jump - it wont depend on power from directly from its muscles but on the energy stored in the
 [resilin](https://en.wikipedia.org/wiki/Resilin)
 elastic protein pad. It releases the store energy fast like bow & arrow.

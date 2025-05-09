@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Are Crickets Good or Bad?
 date: '2025-05-04T23:05:01+00:00'

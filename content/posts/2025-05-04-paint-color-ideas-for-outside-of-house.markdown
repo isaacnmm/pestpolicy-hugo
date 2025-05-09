@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Paint Color Ideas for Outside of House
 date: '2025-05-04T02:16:26+00:00'

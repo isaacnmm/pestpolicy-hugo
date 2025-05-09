@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Enamel vs Latex Paint
 date: '2025-05-04T06:03:51+00:00'

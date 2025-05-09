@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: What Does a Queen Wasp Look Like?
 date: '2025-05-04T03:29:33+00:00'

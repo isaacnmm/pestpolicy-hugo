@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: House Painting Designs and Colors
 date: '2025-05-04T01:59:12+00:00'

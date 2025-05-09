@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How Much Does a Painter Make?
 date: '2025-05-04T17:48:30+00:00'

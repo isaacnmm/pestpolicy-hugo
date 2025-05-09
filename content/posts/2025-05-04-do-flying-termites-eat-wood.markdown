@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Do Flying Termites Eat Wood?
 date: '2025-05-04T19:04:40+00:00'

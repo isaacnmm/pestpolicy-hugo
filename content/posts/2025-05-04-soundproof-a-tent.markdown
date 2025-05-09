@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Easy Guide to Soundproof a Tent
 date: '2025-05-04T02:41:48+00:00'

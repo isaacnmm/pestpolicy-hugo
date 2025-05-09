@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How Long Do Squirrels Live? Life Expectancy?
 date: '2025-05-04T15:33:49+00:00'

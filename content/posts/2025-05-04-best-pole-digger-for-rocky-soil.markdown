@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: 9 Best Pole Digger for Rocky Soil 2025
 date: '2025-05-04T22:14:18+00:00'
@@ -17,269 +17,129 @@ The Best Pole Digger for Rocky Soil is a must-have tool for digging into the ear
 ## Run Down: 9 Best Pole Digger for Rocky Soil 2025
 ### [1. Landworks Heavy Duty Eco-Friendly Electric Cordless Auger](https://www.amazon.com/dp/B078HB9QR6/?tag=p-policy-20)
 This Landworks series is powered by a high capacity lithium-ion battery which digs at a rate of 30 holes per full charge.
-[](https://www.amazon.com/dp/B078HB9QR6/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01N39KRRM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000N4UZ80/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00V6IEVXM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004JMZH2G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00602J4MM?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01DYB9KRK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004H4X6Z6/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=aeeeec761ac9e561e0e646e30ca67642)
-[](https://www.amazon.com/dp/B01MYPL2XZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01MSOXMDY/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079CYGP6W/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00OAVXPAM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B074KKY9CG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00D3KJN3O/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B002ZVOLXE/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00ZU1Z2W0/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00RGNW8PO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079KBNTSM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MOT0FNW/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=a9243263f92415d854e1676b7e6ab6ee)
-[](https://www.amazon.com/dp/B00F6EV306/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
 In addition to its high performance, its fairly priced and eco-friendly and reputed for providing consistent and efficient hole digging performance with minimal effort.
 The innovative and professional design of this unit will make your life easy and simple in all your hole digging tasks. This unit provides an eco-friendly and cost-effective option with a rotation rate of 320 RPMs.
 The battery-powered option of this unit gives you the convenience of unlimited reach as compared to corded units. It features a lithium-ion battery and a charger.
 This high capacity battery offers a heavy-duty performance of 320 rotations per minute and is capable of digging 30 holes on a single charge session. What’s more? The eco-friendly option provided by this unit offers you quiet and efficient performance.
 This unit’s ergonomically designed handles are also widely spaced offering the user superior exceptional balance and control in tight and closed spaces. A reverse torque control (RTC) feature allows the user to pull out the equipment from tight areas if stuck.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - It features high end construction
 - Quiet and powerful performance
 - Features LED lighting
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - Relatively heavy (35lbs)
-[/su_list][/su_box][/su_column] [/su_row]
+
 https://www.youtube.com/watch?v=aVkNCYTq_cw
 ### [2. Southland SEA438 One Man Earth Auger with 43cc, 2 Cycle](https://www.amazon.com/dp/B0063MSXYY/?tag=p-policy-20)
 If you are looking for beastly performance in a hole digger, the SEA438 series is the ultimate tool to go for.
-[](https://www.amazon.com/dp/B0063MSXYY/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01N39KRRM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000N4UZ80/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00V6IEVXM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004JMZH2G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00602J4MM?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01DYB9KRK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004H4X6Z6/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=aeeeec761ac9e561e0e646e30ca67642)
-[](https://www.amazon.com/dp/B01MYPL2XZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01MSOXMDY/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079CYGP6W/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00OAVXPAM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B074KKY9CG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00D3KJN3O/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B002ZVOLXE/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00ZU1Z2W0/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00RGNW8PO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079KBNTSM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MOT0FNW/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=a9243263f92415d854e1676b7e6ab6ee)
-[](https://www.amazon.com/dp/B00F6EV306/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
 This unit is specially designed for extreme use on clay and sandy soil as depicted by its excellent performance when digging holes on clay, rocky and sandy soil. This is an all-around toll for gardening professionals and landscapers alike.
 This unit is powered by a highly dependable 43cc engine offering 316 rotations per minute for quick and efficient drilling performance. It also features an 8-inch drill bit capable of digging 2.5 feet with minimal effort.
 With the Southland SEA438 pole digger, you are guaranteed years of reliable and flawless performance provided by this high-quality product. The manual recoil feature of this product allows you to start the unit effortlessly. Its easily detachable ergonomic handles ease maneuverability, storage, and control.
 One of the key highlights of this model is its budget-friendly price as compared to other high end models that offer exceptional performance. It also features high end construction and ease of assembly.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Easy start capability
 - Highly affordable
 - It offers a heavy duty performance
 - Features detachable handles
 - A translucent tank allows you to keep check of fuel levels
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - Gasoline powered and unfriendly to the environment
-[/su_list][/su_box][/su_column] [/su_row]
+
 https://www.youtube.com/watch?v=CY5YyXwTqwI
 Read Also:
 [Best Tiller For Roots](https://pestpolicy.com/best-tiller-for-roots/)
 ### [3. XtremepowerUS V-Type 55CC 2 Stroke Gas Post Hole Digger 3/4" Shaft 1-Man Auger](https://www.amazon.com/dp/B00CAY8WTU/?tag=p-policy-20)
 This brand is popular for its lightweight design coupled with unmatched performance and convenience.
-[](https://www.amazon.com/dp/B00CAY8WTU/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01N39KRRM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000N4UZ80/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00V6IEVXM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004JMZH2G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00602J4MM?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01DYB9KRK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004H4X6Z6/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=aeeeec761ac9e561e0e646e30ca67642)
-[](https://www.amazon.com/dp/B01MYPL2XZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01MSOXMDY/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079CYGP6W/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00OAVXPAM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B074KKY9CG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00D3KJN3O/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B002ZVOLXE/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00ZU1Z2W0/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00RGNW8PO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079KBNTSM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MOT0FNW/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=a9243263f92415d854e1676b7e6ab6ee)
-[](https://www.amazon.com/dp/B00F6EV306/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
 This XtremepowerUS tool is powered by a 55c 2-stroke air-cooled engine and is an ideal choice for homeowners looking for a speedy and efficient way of planting trees and erecting posts. The air-cooled feature prevents overheating and other performance hitches.
 A high-performance motor allows you to tackle rocky soils with relative ease. This power-packed unit will dig holes of up to 2.5ft in a relatively short time given its variable speed feature. It also offers you the convenience of use given its lightweight design and small size.
 This unit is highly versatile and comes equipped with 6,8 and 12” drilling bits for that excellent performance.
 For quick and effortless start-up, this unit’s electric ignition is just what you need to perform tasks on the go. Its ergonomically designed handles guarantee user comfort and traction for all those demanding tasks such as installing fences, ice fishing and planting trees. This unit’s durability is guaranteed by its limited lifetime warranty feature.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Ideal for drilling in rocky soil
 - Features a lifetime warranty
 - Features an electric ignition
 - Highly affordable
 - Ease of control and manoeuvrability
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - It tends to clog easily
-[/su_list][/su_box][/su_column] [/su_row]
+
 Read Also:
 [Best Rototiller for Rocky Soil](https://pestpolicy.com/best-rototiller-for-rocky-soil/)
 ### [4. Seymour 21306 AU-S6 Iwan Auger with Hardwood Handle](https://www.amazon.com/dp/B00002N8OK/?tag=p-policy-20)
 This is the ultimate tool for drilling into hard-packed soils when installing fences or planting trees.
-[](https://www.amazon.com/dp/B00002N8OK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01N39KRRM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000N4UZ80/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00V6IEVXM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004JMZH2G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00602J4MM?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01DYB9KRK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004H4X6Z6/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=aeeeec761ac9e561e0e646e30ca67642)
-[](https://www.amazon.com/dp/B01MYPL2XZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01MSOXMDY/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079CYGP6W/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00OAVXPAM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B074KKY9CG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00D3KJN3O/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B002ZVOLXE/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00ZU1Z2W0/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00RGNW8PO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079KBNTSM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MOT0FNW/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=a9243263f92415d854e1676b7e6ab6ee)
-[](https://www.amazon.com/dp/B00F6EV306/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
 With this unit, you will relish every moment of hole digging because it comes equipped with multiple features and an ingenious design that simplifies the user’s work. In addition to a 6” auger drill, this unit also features a steel blade, an ergonomically designed handle and a lightweight design.
 The solid T-handle design of this unit is augmented by a riveted steel blade while a rugged iron yoke exerts the necessary force required for digging into that rocky soil. The twisting action provided by the drilling force takes the time and effort from hole digging tasks.
 This unit’s ease of use and its wide range of convenience features makes it the ideal choice for homeowners whereas its wooden handle offers user comfort. Weighing in at just 8.5lbs, this hole digger is highly portable and its handle long enough so you don’t have to bend over when making holes.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - The lightweight construction design of this unit renders it highly convenient.
 - The simplistic design of this unit is devoid of many additional features but is nevertheless hardy enough to provide superior performance.
 - This unit is cost-effective and highly dependable, providing excellent performance in different types of soils.
 - It features a sharp blade and user friendly handling design.
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - Not ideal for large scale work
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [5. PROYAMA 51.7CC 2 Stroke Gas Post Hole Digger Earth Auger](https://www.amazon.com/dp/B073B2ZHYC/?tag=p-policy-20)
 This unit is powered by a 54cc gasoline engine which is sufficient for all your small scale and large scale pole digging tasks in rocky soils. It features manual recoil for easy start up during usage whereas an integrated cooling system prevents the unit from overheating.
-[](https://www.amazon.com/dp/B073B2ZHYC/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01N39KRRM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000N4UZ80/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00V6IEVXM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004JMZH2G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00602J4MM?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01DYB9KRK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004H4X6Z6/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=aeeeec761ac9e561e0e646e30ca67642)
-[](https://www.amazon.com/dp/B01MYPL2XZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01MSOXMDY/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079CYGP6W/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00OAVXPAM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B074KKY9CG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00D3KJN3O/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B002ZVOLXE/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00ZU1Z2W0/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00RGNW8PO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079KBNTSM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MOT0FNW/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=a9243263f92415d854e1676b7e6ab6ee)
-[](https://www.amazon.com/dp/B00F6EV306/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
 Additionally, the versatile nature of this pole digger makes it an ideal choice for both professional amateur users. This pole digger’s handles are padded with rubber which guarantees a tough grip regardless of the weather conditions. This feature also helps in absorbing shock during usage particularly in rocky terrains.
 The PROYAMA hole digger’s small capacity engine makes it an efficient choice for small scale tasks as depicted by its 100% EPA approval. What’s more? Its engine performs excellently on relatively small fuel uptake. In addition to its ergonomic design, this pole digger it easy to use and highly economical.
 This digger can be fitted with bits of various sizes ranging from 4 to 8 inches which allows you to make holes of varying diameters. The PROYAMA Auger is just what you need to achieve professional quality work.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - A translucent tank allows you to track gasoline levels
 - Highly portable due to its lightweight design
 - Features a comfortable handle design
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - Relatively expensive
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [6. Earthquake 9800H 2-Person Earth Auger Powerhead with 160cc](https://www.amazon.com/dp/B000BVYT0K/?tag=p-policy-20)
 This is arguably the best 2-person hole digger. This unit provides industrial scale service given its ability to dig holes that are larger than the standard size.
-[](https://www.amazon.com/dp/B000BVYT0K/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01N39KRRM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000N4UZ80/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00V6IEVXM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004JMZH2G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00602J4MM?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01DYB9KRK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004H4X6Z6/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=aeeeec761ac9e561e0e646e30ca67642)
-[](https://www.amazon.com/dp/B01MYPL2XZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01MSOXMDY/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079CYGP6W/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00OAVXPAM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B074KKY9CG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00D3KJN3O/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B002ZVOLXE/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00ZU1Z2W0/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00RGNW8PO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079KBNTSM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MOT0FNW/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=a9243263f92415d854e1676b7e6ab6ee)
-[](https://www.amazon.com/dp/B00F6EV306/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
 Powered by a 4-stroke 190cc engine (Briggs & Stratton), this unit is CARB certified and capable of delivering a maximum auger speed of 121rpm. The 9800B series is capable of drilling holes as large as 14” with relative ease.
 This series is made of solid steel and enclosed in an alloy steel cage which makes it the ideal choice for rocky soils. The engine is enclosed in a cast aluminum casing which is rust-resistant and lighter in weight. A 3” centrifugal clutch also adds to this unit’s durability.
 Its alloy gear transmission system is also highly durable and suited for different soil terrains. Despite its heavy nature, this unit’s handles are widely placed to allow optimal user control. This feature makes it relatively easy for two persons to operate the unit while the long handles offer ease manoeuvrability. The gas tank is made of industrial grade material making it ideal for large scale and rugged tasks.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Highly durable
 - Ideal for industrial scale tasks
 - Features a powerful engine
 - Highly efficient and CARB certified
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - Relatively expensive
-[/su_list][/su_box][/su_column] [/su_row]
+
 Read Also:
 [Best Rotary Tiller For Tractor](https://pestpolicy.com/best-rotary-tiller-for-tractor/)
 ### [7. Goplus 1200W Electric Post Hole Digger 110V 1.6HP](https://www.amazon.com/dp/B01A0OAZKU/?tag=p-policy-20)
 The rugged nature of this unit attests to its sheer strength and durability. Regardless of the soil type or terrain, this GOplus series can attach to different drill bits to allow the user to withstand any resistance.
-[](https://www.amazon.com/dp/B01A0OAZKU/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01N39KRRM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000N4UZ80/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00V6IEVXM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004JMZH2G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00602J4MM?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01DYB9KRK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004H4X6Z6/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=aeeeec761ac9e561e0e646e30ca67642)
-[](https://www.amazon.com/dp/B01MYPL2XZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01MSOXMDY/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079CYGP6W/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00OAVXPAM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B074KKY9CG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00D3KJN3O/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B002ZVOLXE/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00ZU1Z2W0/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00RGNW8PO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079KBNTSM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MOT0FNW/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=a9243263f92415d854e1676b7e6ab6ee)
-[](https://www.amazon.com/dp/B00F6EV306/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
 This unit’s electric engine provides a staggering 1200 watts of power output which is just what you need for digging pole holes in rocky soils.
 This electric pole digger offers you a speed of 200 RPMs while its 4” drill bit is capable of digging depth of 22 inches.
 A heavy paint coating adds to this unit’s durability while ensuring it is rust and corrosion-resistant. Two anti-skid and vibration-proof handle grips to the user's comfort and stability during usage. Two conveniently located buttons allow the user to start and lock the machine with relative ease hence guaranteeing user safety.
 Another unique feature of this unit is that it features a standard length electric power code which does not get in the way during usage. Overall, this unit’s electric engine and auger drill are strong and durable and capable of tackling all soil types.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - It attaches to different drill types
 - It provides high power output
 - Guaranteed user comfort and handling
 - Start and lock feature ensure user safety
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - Not ideal for large scale use
-[/su_list][/su_box][/su_column] [/su_row]
+
 ## Considerations for buying Pole Digger for Rocky Soil
 ### 1. Power output
 This is an important consideration if you are planning to work on rocky soil. Gasoline powered engines are more ideal for rocky terrain. In addition, the serviceability and reliability of the engine and availability of spare parts are important considerations for rocky soil pole diggers.

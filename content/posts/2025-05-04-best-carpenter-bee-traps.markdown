@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: 7 Best Carpenter Bee Traps Reviewed
 date: '2025-05-04T14:19:49+00:00'

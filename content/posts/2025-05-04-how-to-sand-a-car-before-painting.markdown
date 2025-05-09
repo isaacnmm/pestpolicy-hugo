@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How to Sand a Car Before Painting
 date: '2025-05-04T06:48:36+00:00'

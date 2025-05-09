@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Diatomaceous Earth for Fleas on Cats
 date: '2025-05-04T13:27:08+00:00'
@@ -26,7 +26,7 @@ When exposed, the water in them evaporates, and subsequently, they become dehydr
 - Also called micronized DE. It is an excellent form of DE that is used in the manufacture of insecticides and pesticides.
 **Calcined Diatomaceous earth - **
 This form of DE is usually heat treated and used in water filtering and explosives manufacture.
-[su_youtube url="https://youtu.be/hNLtE0Edyh8"]
+
 ## **Benefits of Diatomaceous Earth for Fleas **
 1. Natural dewormer
 Apart from

@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How to Paint a Wall with a Brush
 date: '2025-05-04T22:17:56+00:00'

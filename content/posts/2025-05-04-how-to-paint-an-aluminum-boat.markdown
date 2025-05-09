@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How to Paint an Aluminum Boat
 date: '2025-05-04T19:15:04+00:00'

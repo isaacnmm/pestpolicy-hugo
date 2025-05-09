@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Microphone Polar Patterns
 date: '2025-05-04T00:50:59+00:00'

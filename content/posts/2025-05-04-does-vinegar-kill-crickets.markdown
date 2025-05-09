@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Does Vinegar Kill Crickets?
 date: '2025-05-04T17:47:23+00:00'

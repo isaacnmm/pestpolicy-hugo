@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: View Pictures of Bed Bugs in all Life Stages
 date: '2025-05-04T19:27:45+00:00'
@@ -79,7 +79,7 @@ They are flat to oval-shaped, depending on the amount of blood they’ve sucked.
 [Bed bugs will hide](https://pestpolicy.com/where-do-bed-bugs-hide/)
 in most furniture types - particularly in their undersides, seams, and corners.
 - The rule of thumb is that bed bugs will fit in any crack that can also take a credit card.*Check the bugs below hanging on sofas! *
-[su_image_carousel source="media: 13297,13295,13298,13299" columns="1" align="center"]
+
 Rarely will bed bugs hide in vinyl, suede, or leather sofa or couch materials.
 - So, if you sit on an infested chair or couch - it’s highly likely that you’ll[carry the bed bugs to your home](https://pestpolicy.com/can-humans-carry-fleas-from-one-home-to-another/).
 Further, you can use
@@ -113,7 +113,7 @@ Image Credits: AFPMB
 [/caption]
 You might also want to inspect hidden areas like wall joins, ceiling and cracks, bedroom furniture, and carpet, and your beds.
 - Below is a video of some dead bugs. Disclaimer, some live ones were filmed.
-[su_youtube url="https://www.youtube.com/watch?v=tqcc3ILhHP0&feature=youtu.be"]
+
 ### **2. Pictures of baby bed bugs**
 Baby
 [bed bugs will hatch from eggs](https://pestpolicy.com/are-bed-bug-eggs-hard-or-soft/)
@@ -142,7 +142,7 @@ The eggs have round ends with an elongated and oval-shaped body.
 - But the eggs have a “wet spot” look - you can use a flashlight plus a magnifying lens to search for them.
 They’ll hatch into babies in about 6-10 days.
 Further, its nymphs tend to mold about five times before attaining adulthood. Need a video instead? Check this right below.
-[su_youtube url="https://www.youtube.com/watch?v=3lqSaY4qitw&feature=youtu.be"]
+
 ### 3. Males vs. Female Bed Bugs
 The main
 [difference between females vs. male bed bugs](https://pestpolicy.com/male-vs-female-bed-bug/)
@@ -216,14 +216,14 @@ Further, examine the clothing and under crevices.
 ### 5. Bed bugs on a Petri Dish
 These are the bed bugs that my neighbor collected in her daughter’s room.
 Sadly her kids had a meltdown - particularly with her son, who has autism, and thus they had to sleep at my house.
-[su_image_carousel source="media: 13400,13401,13402,12816" columns="1" align="center" captions="yes"]
+
 This made the neighbor feel like a bad mother that the kids had to endure all this.
 ### **5. Pictures of Bed Bug Bites **
 Bed bugs don’t
 [spread disease](https://pestpolicy.com#disease)
 , but they’re expensive to exterminate and difficult to contain.
 - Some people also experience allergic reactions from bed bug bites - check the[pictures of bed bug bites](https://pestpolicy.com/pictures-of-bed-bug-bites/).
-[su_image_carousel source="media: 13423,13422,13432,13431" columns="2" align="center" captions="yes"]
+
 In this video, Louis Sorkin (an entomologist) describes how bed bugs look and behave.
 - You should know that[mosquito bites](https://pestpolicy.com/spider-bite-vs-mosquito-bite/), flea bites, and bed bug bites may look similar.
 But WebMD states that

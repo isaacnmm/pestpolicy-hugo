@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How Many Coats Of Paint On A Fiberglass Boat?
 date: '2025-05-04T20:43:08+00:00'

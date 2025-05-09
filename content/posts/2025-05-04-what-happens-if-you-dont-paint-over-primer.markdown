@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: What Happens If You Don't Paint Over Primer
 date: '2025-05-04T13:19:45+00:00'

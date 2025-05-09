@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Do Lizards Have Teeth? - Reptile Dentition
 date: '2025-05-04T04:21:13+00:00'

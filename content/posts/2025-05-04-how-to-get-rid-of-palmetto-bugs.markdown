@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How to Get Rid of Palmetto Bugs
 date: '2025-05-04T15:49:33+00:00'

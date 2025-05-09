@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Carpenter Bee vs Bumblebee - Signs
 date: '2025-05-04T05:19:19+00:00'
@@ -35,8 +35,7 @@ The Bad:
 - Good pollinators
 - Furry abdominal section with 1-4 yellow stripes
 - Larger body size and non-aggressive
-[/su_list][/su_box][/su_column]
-[/su_row]
+
 ## Compare carpenter bee vs. Bumblebee
 https://www.youtube.com/watch?v=O_7OR8IFas8
 ##

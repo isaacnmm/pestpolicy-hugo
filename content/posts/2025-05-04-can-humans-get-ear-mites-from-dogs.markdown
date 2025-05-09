@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Can Humans Get Ear Mites from Dogs?
 date: '2025-05-04T00:43:22+00:00'

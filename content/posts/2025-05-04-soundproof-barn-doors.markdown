@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How to Soundproof Barn Doors Easily!
 date: '2025-05-04T23:15:02+00:00'

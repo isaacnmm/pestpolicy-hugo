@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Who Makes County Line Tillers?
 date: '2025-05-04T22:34:05+00:00'
@@ -27,7 +27,7 @@ TSC County Line Tiller are impressive cultivators for gardens and yards. TSC Cou
 County Line Tillers will leave fine soil after you take your tilling pass. This will be a great soil texture for you to plant all your seeds and seedlings. Check the
 [front tine vs. rear tine tillers](https://pestpolicy.com/front-tine-vs-rear-tine-tillers/)
 .
-[su_youtube url="https://www.youtube.com/watch?v=T4tejEtyXw0&feature=youtu.be"]
+
 ## County Line Rotary Tiller Replacement Parts
 King Kutter has allowed easy purchasing of technical products while also manufacturing excellent rototillers in the United States.
 - The company carries a broad number of accessories for different cultivators and tillers.

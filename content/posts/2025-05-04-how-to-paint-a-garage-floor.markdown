@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: 'How to Paint a Garage Floor: Epoxy or Latex?'
 date: '2025-05-04T07:08:00+00:00'
@@ -29,7 +29,7 @@ Note that your epoxy floor paint will be extra-tough that won't be damaged easil
 *materials and tools*
 you'll require for the garage painting job.
 https://www.youtube.com/watch?v=dLzQNFCRMRI
-[su_row][su_column size="1/2"][su_box title="" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+
 - Scrubbing brush (stiff-bristled)
 - [Concrete Degreaser](https://pestpolicy.com/best-degreaser-for-concrete/)
 - Protective coverings
@@ -38,7 +38,7 @@ https://www.youtube.com/watch?v=dLzQNFCRMRI
 - Primer
 - High-pressure nozzle
 - Vacuum (the wet-dry type) - latex paint protects against the[damaging UV rays](https://www.cancer.org/cancer/cancer-causes/radiation-exposure/uv-radiation.html)
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+
 - Paintbrushes
 - Concrete patch or filler
 - Plastic bucket
@@ -47,7 +47,7 @@ https://www.youtube.com/watch?v=dLzQNFCRMRI
 - Protective wear ([safety glasses](https://pestpolicy.com/best-safety-glasses-for-spray-painting/), face mask, rubber gloves, and cover cloth)
 - Etching solution
 - Dust parker - it won't leave[roller marks on garage](https://pestpolicy.com/how-to-paint-a-ceiling-without-roller-marks/).
-[/su_list][/su_box][/su_column][/su_row]
+
 ### Step #1 -Preparation and GreatVentilation
 Its important to get prepared and organized to effeycively conduct the garage painting project. Assemble the material and tools - near the floors to reduce stains and unccessry movement.
 Thoroughly repair and clean the concrete floor in your garage prio

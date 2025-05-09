@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Best Acrylic Paint for Wood
 date: '2025-05-04T21:53:13+00:00'

@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Wet and Forgets
 date: '2025-05-04T01:56:18+00:00'
@@ -50,7 +50,7 @@ The appropriate temperature will be over 32 degrees in the application time and 
 I used the Wet & Forget for the garden shed and the fence, removing the greenish algae, but I made sure I conducted effective rinsing.
 No one loves to spend many hours cleaning their siding and shingles after applying a cleaning product. Wet & Forget will cover the outdoor surface and thus no rinsing or cleaning.
 Therefore, with just some limited rainfall, the Wet & Forget-applied surfaces will be washed clean. The product will remove stains such as moss, mold, mildew, and algae from the outdoor covers.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Long and useful shelf life
 - The stain remover is biodegradable.
 - Great for outdoor surface application
@@ -58,9 +58,10 @@ Therefore, with just some limited rainfall, the Wet & Forget-applied surfaces wi
 - Simple application with just 1-step application
 - Removes major and stubborn stains
 - Wont require any rinsing, scraping, or scrubbing
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Could require a second spraying for better outcomes
-[/su_list][/su_box][/su_column][/su_row]
+
 > See Also:
 > [Walk Behind Concrete Grinder](https://pestpolicy.com/best-walk-behind-concrete-grinder/)
 ### 3. Lichen stain Removal with Wet & Forget s

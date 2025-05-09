@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How to Remove Latex Paint from Metal
 date: '2025-05-04T00:59:15+00:00'

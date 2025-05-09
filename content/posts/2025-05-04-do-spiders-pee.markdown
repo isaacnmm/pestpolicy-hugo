@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Do Spiders Pee? Urinate? 7 Spider FAQs
 date: '2025-05-04T17:00:58+00:00'
@@ -26,7 +26,7 @@ Related:
 [Do Spiders Have Brains?](https://pestpolicy.com/do-spiders-have-brains/)
 ## Do Spiders Drink Water?
 Simple answer is, YES, spiders drink water. While in the wild environment, the spiders will drink from droplets on the ground of vegetation. Further, they can drink from evening or morning dew that's hanging on the spider's web.
-[su_youtube url="https://www.youtube.com/watch?v=b4ZYrt3TUpM"]
+
 However, for the caged spiders, you should offer them fresh water using objects like small dish, damp sponge or bottle cap including for the tarantulas species. The Tarantulas will also drink the droplets of water gathered on foliage or leaves around them.
 Despite that spiders do drink water must not make you think that the arachnids live in drains. For a spider that's inside the house, the best water sources is water droplets from shower or tap , sink edges, or plugholes.
 Definitely,
@@ -45,7 +45,7 @@ Related:
 As noted above, spider's
 [poop and pee is mixed together](https://pestpolicy.com/)
 - through their malpighian tubules to eliminate the nitrogenous waste. So, its fact that spiders don't generate urine but will have the near-solid uric acid.
-[su_youtube url="https://www.youtube.com/watch?v=MJXQIJ1lVc0&feature=youtu.be"]
+
 Spiders lack a clearly defined urinary tract comparable to that in mammals. Check this
 [amazing answer](https://www.quora.com/Do-spiders-defecate-urinate-and-is-it-harmful-to-humans)
 on whether spiders pee or poop. You can use

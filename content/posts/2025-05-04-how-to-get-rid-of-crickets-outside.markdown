@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How to Get Rid of Crickets Outside
 date: '2025-05-04T15:27:07+00:00'

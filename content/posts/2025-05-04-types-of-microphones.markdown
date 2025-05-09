@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Types of Microphones
 date: '2025-05-04T03:14:57+00:00'

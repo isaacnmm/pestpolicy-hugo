@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Does Mineral Spirits Remove Paint?
 date: '2025-05-04T23:10:06+00:00'

@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Can Bearded Dragons Eat Apples? 7 Secrets
 date: '2025-05-04T21:34:43+00:00'

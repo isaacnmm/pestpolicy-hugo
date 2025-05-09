@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How to Unclog a Shower Drain Full of Hair
 date: '2025-05-04T23:37:06+00:00'
@@ -56,7 +56,7 @@ Finally, pour about cold water (about two glasses) into the drain.  Then leave 
 Definitely, after unclogging your shower drain, you’ll now require to stop any factors that could take you back to the slow-moving drain mess. Therefore, in this section, I’ll dig into how you can keep your drain cleaner longer and thus have an enjoyable shower time.
 **1. Replace worn-out shower strainers: **
 First things first, you need to keep your protection system up all the time. This comes down to having a reliable and screwed or corked down shower strainer in the shower drain. Further, it would help if you kept the strainers clean from any hairballs or dirt.
-[su_youtube url="https://youtu.be/_2iIQ_8KHt4"]
+
 Therefore, the strainer prevents large hair from doing down the drain. Thus you can clean most of the large hairballs using your regular brush or broom after each shower.
 However, avoiding falling back to chemical drain cleaners so fast as some could, over time, destroy the drainage pipes. Therefore, the alternative is avoiding drain blockage as much as possible instead of using chemicals every time.
 **2. Pour hot water once weekly: **

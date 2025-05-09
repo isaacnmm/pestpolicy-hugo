@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Why are Mole Traps Illegal? In All States?
 date: '2025-05-04T15:40:36+00:00'

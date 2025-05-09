@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How to Paint a Fence with a Roller
 date: '2025-05-04T21:03:47+00:00'

@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: 'Bellingham: Western Washington University (WWU)'
 date: '2025-05-04T08:48:46+00:00'

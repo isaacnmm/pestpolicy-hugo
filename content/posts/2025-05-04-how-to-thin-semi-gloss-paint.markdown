@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How to Thin Semi-Gloss Paint
 date: '2025-05-04T17:26:47+00:00'

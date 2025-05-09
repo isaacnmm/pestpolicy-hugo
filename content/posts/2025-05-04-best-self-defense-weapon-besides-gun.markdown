@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: 7 Best Self Defense Weapon Besides Gun 2025 Reviewed
 date: '2025-05-04T18:12:07+00:00'

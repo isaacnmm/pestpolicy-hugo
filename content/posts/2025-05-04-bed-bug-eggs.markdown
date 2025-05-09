@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Bed Bug Eggs * Pictures * (Flea Life Cycle)
 date: '2025-05-04T12:15:25+00:00'
@@ -34,7 +34,7 @@ Adult
 , and, when exposed to the right conditions, they'll put in 6-10 days. Further, the
 [bed bug nymphs will go hunting for a blood meal](https://pestpolicy.com/what-does-bed-bug-poop-look-like/)
 .
-[su_youtube url="https://www.youtube.com/watch?v=R26-3bKJUEA"]
+
 ## Can you see bed bug eggs?
 Despite that
 [bed bug being 2.5 mm in size](https://pestpolicy.com/how-to-get-rid-of-bed-bugs-fast/)

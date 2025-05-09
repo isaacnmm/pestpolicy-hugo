@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Can You Paint Over Caulk Without Primer?
 date: '2025-05-04T04:06:53+00:00'

@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Do Anole Lizards Bite?
 date: '2025-05-04T02:47:01+00:00'

@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: What Kind of Paint to Use on Bathroom Cabinets
 date: '2025-05-04T01:34:20+00:00'

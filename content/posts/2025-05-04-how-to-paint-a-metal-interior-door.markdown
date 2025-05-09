@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How to Paint a Metal Interior Door
 date: '2025-05-04T00:09:51+00:00'

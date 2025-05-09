@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: 7 Best Men's Dress Shoes for Flat Feet 2025
 date: '2025-05-04T20:34:55+00:00'
@@ -18,38 +18,7 @@ Related:
 ## Review: 7 Best Men’s Dress Shoes For Flat Feet
 ### [1. Ecco Men's Helsinki Slip-On](https://www.amazon.com/dp/B0052CQRK8/?tag=p-policy-20)- Men’s Dress Shoes for Flat Feet
 The Ecco Men's Helsinki Slip-On is a classic oxford shoe with a timelessly stylish design. It’s a comfortable and supportive dress shoe for men with flat feet.
-[](https://www.amazon.com/dp/B0052CQRK8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07DX3QQM4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788T3GS8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07QV99J7Y/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B001AWZAIE/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07GLXGKKG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07897QMX4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01N1I12JN/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MNJWWKZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07NBKSBH7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007C1O3SK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KJPJRVR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01CTGOD9G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07BVZ6YRR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078SYZSVK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007OWTO4A/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0012HR2I8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The shoes feature Polyurethane (PU) Soles that make the shoe flexible while ensuring excellent shock absorption properties. PU also provides excellent arch support while helping the shoe retain its shape for a longer wear experience.
 
 The upper features durable ECCO Leather that has passed through the highest quality control processes to produce a perfect men’s dress shoe.
@@ -59,7 +28,7 @@ The removable leather insole allows you to use custom-made orthotics for additio
 ECCO has remained true in its promise of producing dress shoes that meet the highest level of durability, flexibility, support, and fit. The company employs innovative construction techniques to bring you ultimate comfort each time you wear Ecco Helsinki oxford shoe.
 
 Furthermore, ECCO also incorporates Freedom Fit approach in its shoe construction. This type of fit provides a spacious toe box allowing toes to spread naturally, as you walk ensuring you have a pleasant walking experience. Therefore, irrespective of the size of your feet, you’ll definitely find an ECCO size that suits you.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Soft leather upper
 - Excellent shock absorption
 - Excellent moisture-wicking properties
@@ -67,43 +36,13 @@ Furthermore, ECCO also incorporates Freedom Fit approach in its shoe constructio
 - Best office shoe
 - Comfortable
 - Well-cushioned
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Pricey
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [2. Florsheim Men's Midtown Plain Toe Saddle Oxford](https://www.amazon.com/dp/B074DJBQYP/?tag=p-policy-20)
 Florsheim Toe Saddle Oxford is a well-designed shoe that offers comfort and style. Its finds a spot on best men’s dress shoes for flat feet because of its impeccable features and technologies.
-[](https://www.amazon.com/dp/B074DJBQYP/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07DX3QQM4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788T3GS8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07QV99J7Y/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B001AWZAIE/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07GLXGKKG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07897QMX4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01N1I12JN/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MNJWWKZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07NBKSBH7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007C1O3SK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KJPJRVR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01CTGOD9G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07BVZ6YRR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078SYZSVK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007OWTO4A/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0012HR2I8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 This Florsheim men’s dress shoe features a classic saddle construction and Comfortech technology, which makes the shoe a perfect choice for a man looking for the best dress shoe for that official engagement.
 
 This dress shoe features Ortholite X-40 rebound foam that provides lost-lasting cushioning and support. It also has excellent antimicrobial and moisture management properties. This means the shoe repels water and bacterial causing diseases. Thus, your feet remain healthy, dry, and fresh throughout the day.
@@ -113,7 +52,7 @@ The upper incorporates a genuine leather material that’s highly durable, light
 The insole is a completely cushioned removable footbed that provides needed underfoot cushioning and support. The insole also incorporates a soft leather cover and Ortholite high rebound foam for additional comfort and excellent shock absorption.
 
 Florsheim men’s dress shoe has a rubber outsole that’s non-marking, durable, flexible, and slip resisting. This feature allows you to perform your duties confidently without worrying. Most wearers have confirmed that the shoe is true to size. It’s available in various width options including wide and medium widths.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Durable and slip-resisting rubber sole
 - Highly cushioned
 - Comfortable
@@ -122,43 +61,13 @@ Florsheim men’s dress shoe has a rubber outsole that’s non-marking, durable,
 - Breathable linings
 - Excellent moisture management technology
 - Unmatched antimicrobial properties
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Some people say that the shoe runs slightly larger
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [3. Rockport Men's Leader 2 Bike Slip on](https://www.amazon.com/dp/B01J9DTVDA/?tag=p-policy-20)
 If you’re looking for a man’s dress shoe that offers comfort and style for an official or casual setting you should pick Rockport Men's Leader 2 Bike Slip-on.
-[](https://www.amazon.com/dp/B01J9DTVDA/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07DX3QQM4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788T3GS8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07QV99J7Y/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B001AWZAIE/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07GLXGKKG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07897QMX4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01N1I12JN/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MNJWWKZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07NBKSBH7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007C1O3SK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KJPJRVR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01CTGOD9G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07BVZ6YRR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078SYZSVK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007OWTO4A/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0012HR2I8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The glowing leather upper and the square toe area provides a perfect look for that professional setting.  The collar has sufficient padding that ensures extra comfort.
 
 This Leader 2 Bike Slip-on features a patented Rockport lightweight sole that delivers lightweight shock absorption to ensure you remain comfortable throughout the day.
@@ -170,7 +79,7 @@ Another exceptional feature is the Sponge ethylene vinyl acetate (EVA). This ele
 The Rockport Men's dress shoe also has a durable EVA outsole that delivers excellent shock absorption. Hence, helps to minimize foot fatigue.
 
 This men’s walking shoe is also waterproof features water leather upper and water insole. The gusseted tongue helps in keeping the feet dry and fresh during wet conditions.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Comfortable
 - Cushioned
 - The excellent moisture wicking system
@@ -179,43 +88,13 @@ This men’s walking shoe is also waterproof features water leather upper and wa
 - Flexible
 - Lightweight
 - Offer snug fit
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - A customer reported that the soles were slippery on wet surfaces
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [4. Dunham Men's Jericho Oxford](https://www.amazon.com/dp/B07C5D7Y66/?tag=p-policy-20)
 Dunham shoes are custom made for all-day comfort and are perfect as official or casual wear. The Dunham Men's Jericho Oxford are some of the best men’s shoes for flat feet thanks to its excellent construction and features.
-[](https://www.amazon.com/dp/B07C5D7Y66/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07DX3QQM4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788T3GS8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07QV99J7Y/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B001AWZAIE/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07GLXGKKG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07897QMX4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01N1I12JN/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MNJWWKZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07NBKSBH7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007C1O3SK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KJPJRVR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01CTGOD9G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07BVZ6YRR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078SYZSVK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007OWTO4A/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0012HR2I8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The shoe features a removable molded EVA footbed that delivers excellent shock absorption to protect the feet from hard ground impact.  The footbed also moulds your foot to give you a comfortable fit. You can also replace the footbed with orthotics for extra comfort and support.
 
 The construction of the shoe is Seam-sealed and waterproof. This means the shoe repels water allowing you to work on various work environments including stepping on a wet surface without worry of becoming wet.
@@ -225,49 +104,19 @@ The men’s dress shoes feature a full-grain leather upper that’s soft, lightw
 The outsole of this Dunham shoe is all rubber that’s slip-resistant and provides excellent traction. Thus, you can walk on almost all surfaces without worry of slipping or falling.
 
 The midsole also incorporates Nylon stability shank that provides needed arch support while ensuring the wearer has a smoother gait. The Adjustable lace closure allows loosening or tightening the shoe to your comfort levels.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Excellent construction
 - Reliable traction on surfaces
 - Excellent heel support
 - True to size
 - Don’t untie frequently
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Glued soles may separate after months of use
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [5. Dr. Comfort Wing Men's Therapeutic Diabetic Shoe](https://www.amazon.com/dp/B00IOT28I6/?tag=p-policy-20)
 Dr Comfort shoes are known for their therapeutic features and technologies that help to soothe problematic feet. This Wing Men's Diabetic Shoe is not any different. It’s one of the best men’s dress shoes for flat feet.
-[](https://www.amazon.com/dp/B00IOT28I6/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07DX3QQM4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788T3GS8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07QV99J7Y/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B001AWZAIE/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07GLXGKKG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07897QMX4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01N1I12JN/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MNJWWKZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07NBKSBH7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007C1O3SK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KJPJRVR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01CTGOD9G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07BVZ6YRR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078SYZSVK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007OWTO4A/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0012HR2I8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The shoe features full-grain leather that provides a soft and comfortable feel. It also prevents skin irritation and contributes to high comfort levels when worn.
 
 This Men's Diabetic dress shoe has a protective toe box that offers additional protection to toes preventing toe stubbing. The toe area is also spacious allowing toes to wiggle naturally. A padded heel provides support to the back of the foot.
@@ -277,7 +126,7 @@ Other than that, the removable insoles provide comfort and cushioning. You can a
 The fine details of this dress shoe make it classic and elegant. You’ll love the comfort and style you’ll experience when wearing these shoes.  Also, if you have foot problems like bunions,
 [claw toes](https://pestpolicy.com/best-shoes-for-claw-toes/)
 , hammertoes, and other foot conditions, these are the dress shoes that would help ease your pain.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Full-grain leather
 - Comfortable
 - Cushioned
@@ -285,43 +134,13 @@ The fine details of this dress shoe make it classic and elegant. You’ll love t
 - [Best dress shoe for all day standing](https://pestpolicy.com/best-mens-dress-shoes-for-standing-all-day/)
 - Has protective toe box
 - Roomy toe box
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - The interior liner at the heel section wears off after only a few months of use
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [6. STACY ADAMS Men's Desmond Cap Toe Monk Strap Loafer](https://www.amazon.com/dp/B076CW51NS/?tag=p-policy-20)
 If you’re a man who appreciates personal style, allow STACY ADAMS Cap Toe Loafer to help you express yourself effortlessly.
-[](https://www.amazon.com/dp/B076CW51NS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07DX3QQM4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788T3GS8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07QV99J7Y/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B001AWZAIE/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07GLXGKKG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07897QMX4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01N1I12JN/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MNJWWKZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07NBKSBH7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007C1O3SK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KJPJRVR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01CTGOD9G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07BVZ6YRR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078SYZSVK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007OWTO4A/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0012HR2I8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The company takes attention to detail seriously. Each pair of shoe is hand burnished. You’ll immediately notice that the shoe is well crafted using the highest quality materials. The upper is all leather. The material is soft, lightweight, and durable to give you comfort and longer wear period.
 
 The insole is fully cushioned and features a memory form that provides unmatched comfort and shock absorption. The memory form is also incorporated from the heel to toe section for extra comfort. The memory form conforms to your foot to give you a customized fit.
@@ -329,7 +148,7 @@ The insole is fully cushioned and features a memory form that provides unmatched
 Another great feature is the Classic Stacked Heel that promotes comfort and durability. The heeltap and stacked heel are major style details that make this men’s dress shoe stand out. The sole of this shoe matches that of a traditional leather sole but it’s engineered with materials that ensure its durability and performance.
 
 The Cap Toe Loafer also boasts of a durable and lightweight construction that features breathable leather lining for additional comfort.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Attention to detail
 - Comfortable dress shoes
 - Slip-on loafer
@@ -337,43 +156,13 @@ The Cap Toe Loafer also boasts of a durable and lightweight construction that fe
 - Metal buckle make slipping on/off easy
 - Durable outsole
 - All leather
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Some people complain that the shoe is not true to size
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [7. Rockport Men's Margin Oxford](https://www.amazon.com/dp/B00627EFYM/?tag=p-policy-20)
 Rockport Men's Margin Oxford are classic men’s dress shoes that have excellent comfort systems that provide great shock absorption. Hence, all-day comfort.
-[](https://www.amazon.com/dp/B00627EFYM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07DX3QQM4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788T3GS8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07QV99J7Y/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B001AWZAIE/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07GLXGKKG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07897QMX4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01N1I12JN/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MNJWWKZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07NBKSBH7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007C1O3SK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KJPJRVR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01CTGOD9G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07BVZ6YRR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078SYZSVK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007OWTO4A/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0012HR2I8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The padded tongue and collar provide comfort by preventing lace bruising and blisters. The polyurethane outsole delivers excellent shock absorption helping to reduce foot fatigue while ensuring excellent traction.
 
 The dress shoe also features breathable polyurethane footbeds and antimicrobial lining that ensures feet remain dry and fresh throughout the day.
@@ -383,7 +172,7 @@ The Margin Oxford dress shoe utilizes genuine leather material ensuring that you
 You’ll appreciate the extended width options of this dress shoe. I’m sure you’ll find a pair that suits you. Also, all the elements in this casual dress shoe are designed to flex all directions. Ence, you’ll have the freedom to move around comfortably.
 
 The EVA footbed adapts to the natural contours of your foot to give a personalized fit. The plain-toe design provides a modest yet classic official and casual wear.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - 100% Leather
 - Excellent shock absorption
 - Comfortable
@@ -391,9 +180,10 @@ The EVA footbed adapts to the natural contours of your foot to give a personaliz
 - Prevents bacterial growth
 - Great cushioning
 - Best men’s work shoe
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Not durable as expected
-[/su_list][/su_box][/su_column] [/su_row]
+
 ## Buyers’ Guide for Best Men’s Dress Shoes for Flat Feet
 ### Excellent Arch Support
 People who have flat feet tend to

@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: 7 Best Weed Barrier under Gravel in 2025
 date: '2025-05-04T03:02:57+00:00'
@@ -25,15 +25,16 @@ Agfabric acts like an antioxidant for your plants. It has excellent air and wate
 Luckily, this one is chemical-free and thus won’t poison your plants or flowers. Chemicals would otherwise cause nutrient insufficiency as they’ll make the solid dry.
 - Other applications include patio walkways, playgrounds, under a deck, garden pathways.
 It’ll easily stop any soil erosion particularly when the yard is sloppy or during heavy rains. It measures 50 ft in length, 6.5 ft in width, and weighs 3.2 Oz.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Puncture and tear resistance – it is thick such that weeds won’t puncture through
 - Suitable for under mulch, gravel, and rock - crushed stone.
 - Has in-lines printed on it to enhance garden symmetry
 - Made from environment-friendly and equally biodegradable plastic
 - The woven fabric design restricts light while allowing water to pass through
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - Require regular cleaning
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [2. Dewitt P3Pro 5 Weed Barrier (5-Ounce3-by-250-Foot)](https://www.amazon.com/dp/B000UJVC3U/?tag=p-policy-20)
 Dewitt PRO-5 is also made from polypropylene fabric that’s needle-punched suitable for use in commercial and professional settings.
 The weed barrier is recommended by government agencies and top landscape architects.
@@ -47,15 +48,15 @@ The weed barrier uses no chemicals to control the weeds. These chemicals would o
 - It’ll block the sunlight rays preventing the growth of weeds in your[landscape fabrics](https://extension.psu.edu/putting-an-end-to-my-landscape-fabric-nightmare).
 But the barrier will allow nutrients, water, and air to be available for the plants you love – they’ll thus last long, be healthy and strong while the weeds die.
 Dewitt PRO-5 has a permeable fabric that’ll allow nutrients, water, and air to get to the plant roots and soil – but it’ll also retain moisture which cuts the quality of water you’ll need to grow and maintain your flowers or desired plants.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - A thick barrier prevents hardy weeds and grass from penetrating for sunlight for crushed stone
 - Polypropylene sheet to keep your plants healthy and moist as water will easily seep through the membrane.
 - It is relatively punctures and tears resistant
 - Its created to resist the damaging UV light from the sun
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - None
-[/su_list][/su_box][/su_column] [/su_row]
-[su_youtube url="https://www.youtube.com/watch?v=lyDmKTOiFWM"]
+
 ### [3. Scotts 25-Year (3 by 150-Feet) Pro Fabric](https://www.amazon.com/dp/B00LK2MJ9M/?tag=p-policy-20)
 SCOTT’s 25-Year Pro is a durable and strong weed barrier but it’s not heavy that it won’t be easy to roll over in your yard and under the gravel.
 The fabric is easy to cut yet strong enough to withstand tear and install for most garden owners. However, you can spread a mulch layer on the weed barrier.
@@ -64,15 +65,16 @@ Also, the material is quality despite coming with the flimsy plastic feel – it
 SCOTT’s 25-Year Pro, like its name suggests, can last for about 25 years. Luckily, the fabric will block weeds but equally leave the water to seek through its woven surface.
 However, the weed barrier is not thick enough and so it might tear – but you can cut it with minimal effort.
 You’ll need to remove gravel and mulch regularly while also brushing the weed barrier – this will allow the unit to last for the promised 25 years of good weed blocking. However, SCOTT’s 25-Year Pro is not UV-resistant.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Excellent when used with gravel or mulch cover
 - The fabric is light in weight
 - Easy to install as it’ll take staples easily
 - It’s easy to cut but yet strong enough to avoid careless tearing
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - Not UV-resistant
 - Thin weed barrier
-[/su_list][/su_box][/su_column] [/su_row]
+
 Related:
 [Best Riding Lawn Mower for Tall Grass](https://pestpolicy.com/best-riding-lawn-mower-for-tall-grass/)
 ### [4. PRO Series 4 Ft by 225 Ft Weed Barrier Landscape Fabric](https://www.amazon.com/dp/B00RGNW8PO/?tag=p-policy-20)
@@ -87,15 +89,16 @@ PRO Series 4 is an excellent landscape fabric to save you of tedious weeding tim
 - It offers very high reliability and longevity to control weeds for about 225 feet in your garden or yard.
 - You can easily install the fabric using 6-inches by x 1-inches fabric staples.
 PRO Series 4 allows water to sip through its fabric or hydrophilic membrane but prevents the weeds from developing further. It’ll easily lock down the moisture and easily absorb the water.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Cheap weed control roll that’ll provide a 225 feet cover in your yard or garden
 - Enables easy installation and equally seed or seedling planting
 - Durable while in use as it allows even about 20 years
 - The weed barrier has a rick material akin to the one used by commercial landscapers
 - Its membrane is water permeable to allow water to easily seep into the roots of your flowers or plants.
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - None
-[/su_list][/su_box][/su_column] [/su_row]
+
 Related:
 [How to Till a Garden without a Tiller](https://pestpolicy.com/how-to-till-a-garden-without-a-tiller/)
 ## Conclusion

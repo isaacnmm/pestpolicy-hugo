@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Intel Core i5 6600k vs i7 6700k
 date: '2025-05-04T20:51:42+00:00'

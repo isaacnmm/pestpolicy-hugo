@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Effective Ant Control for Homeowners in Eugene, OR
 date: '2025-05-04T04:59:02+00:00'

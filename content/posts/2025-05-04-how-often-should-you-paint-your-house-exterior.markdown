@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How Often Should You Paint Your House Exterior?
 date: '2025-05-04T08:57:27+00:00'

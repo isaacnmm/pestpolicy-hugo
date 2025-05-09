@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Can Bed Bugs Get in Your Hair?
 date: '2025-05-04T14:46:34+00:00'

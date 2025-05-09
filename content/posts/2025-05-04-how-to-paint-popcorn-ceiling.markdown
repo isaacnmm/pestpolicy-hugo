@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How to Paint Popcorn Ceiling (No Damage)
 date: '2025-05-04T21:15:48+00:00'

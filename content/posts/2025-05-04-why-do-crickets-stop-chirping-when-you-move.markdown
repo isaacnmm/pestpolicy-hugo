@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Why Do Crickets Stop Chirping When You Move?
 date: '2025-05-04T22:26:59+00:00'

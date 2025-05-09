@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Can You Use Acrylic Paint On Wood?
 date: '2025-05-04T11:31:41+00:00'

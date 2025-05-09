@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: What Color Paint Goes with Beige Tile?
 date: '2025-05-04T19:03:22+00:00'

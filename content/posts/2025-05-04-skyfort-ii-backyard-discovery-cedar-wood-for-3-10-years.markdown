@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: "Skyfort II Backyard Discovery \u2013 Cedar Wood for 3-10 years"
 date: '2025-05-04T03:47:55+00:00'
@@ -14,12 +14,7 @@ The Skyfort II Backyard Discovery will come in about boxes and you might require
 The swing set will elevate your landscape and your kid’s creativity with its wooden castle-like design. Read Also:
 [Great Way to Anchor a Swing Set](https://pestpolicy.com/best-way-to-anchor-a-swing-set/)
 ?
-[](https://www.amazon.com/dp/B004SZTU6S/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B001GB35KE/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01BF3WUP8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0177AVE9G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 ### **Money bars **
 Skyfort II has monkey bars, which go the full length, and will sing them into the elevated clubhouse. However, I noted that the monkey bars are very high above the ground and thus the small and short kids might not reach them effectively.
 https://www.youtube.com/watch?v=MGWqkzB1VY4

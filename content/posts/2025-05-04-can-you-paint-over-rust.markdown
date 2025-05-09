@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Can You Paint Over Rust?
 date: '2025-05-04T15:28:27+00:00'

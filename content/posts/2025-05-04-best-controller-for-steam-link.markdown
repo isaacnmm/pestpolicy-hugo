@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: 7 Best Controller for Steam Link 2025 Reviewed
 date: '2025-05-04T05:46:51+00:00'
@@ -72,8 +72,7 @@ Pros:
 - Awesome responsiveness
 Cons:
 - Fast wear in the thumbsticks’ rubber
-[/su_list][/su_box][/su_column]
-[/su_row]
+
 ## Conclusion
 I’ve reviewed the controllers based on some categories:
 - (1) how does the controller feel in your hand

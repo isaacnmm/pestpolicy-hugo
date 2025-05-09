@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How To Soundproof A Dog Crate
 date: '2025-05-04T18:01:06+00:00'

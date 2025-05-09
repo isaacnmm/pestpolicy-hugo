@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How to Soundproof a Room Cheaply
 date: '2025-05-04T08:11:47+00:00'

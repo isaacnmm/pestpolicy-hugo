@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Why Do Crickets Jump Towards You?
 date: '2025-05-04T23:19:57+00:00'

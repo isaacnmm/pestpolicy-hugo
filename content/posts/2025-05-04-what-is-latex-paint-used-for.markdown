@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: What is Latex Paint Used For?
 date: '2025-05-04T21:59:11+00:00'

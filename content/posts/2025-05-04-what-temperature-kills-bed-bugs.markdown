@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: What Temperature Kills Bed Bugs?
 date: '2025-05-04T20:28:19+00:00'

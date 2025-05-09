@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Is it OK to paint over wet caulk?
 date: '2025-05-04T04:05:33+00:00'

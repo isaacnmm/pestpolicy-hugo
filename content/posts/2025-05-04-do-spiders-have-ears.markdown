@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Do Spiders Have Ears?
 date: '2025-05-04T17:32:28+00:00'
@@ -16,7 +16,7 @@ For along time, scientific evidence considered that spiders are dominated by tou
 **sounds even from 5 meters away. **
 **A recent study show that spiders have tiny sensitive hairs to detect sound. **
 ## Details: Do Spiders Have Ears?
-[su_youtube url="https://youtu.be/4gnKnn0Q0aA"]
+
 According to the
 [Paul Shamble research](https://www.theguardian.com/science/2016/oct/13/spiders-dont-have-ears-but-they-can-still-hear-you-coming)
 , their study showed that spiders have acute hearing senses. These insects, despite lacking ears and eardrums, will hear sounds from far distances.
@@ -55,4 +55,3 @@ Related:
 When fear comes - particularly when attached by spiders, you'll definitely scream but can the arachnids hear you? However, first, vibrations and visuals, are more pronounced.
 Previously, researchers thought that spiders could only hear sounds and noises that are just around the insects body. Spiders will smell, taste but will sense vibrations (on hearing) via tiny holes nand hairs all over its body.
 Some spiders species such as Phidippus audax and jumping spider do hear noises and sounds that are up to 5 meters away from the spider.
-[su_youtube url="https://www.youtube.com/watch?v=TxY31IRKCVI"]

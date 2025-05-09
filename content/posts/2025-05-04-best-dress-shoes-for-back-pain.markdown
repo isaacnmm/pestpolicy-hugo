@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: 7 Best Dress Shoes For Back Pain 2025
 date: '2025-05-04T02:05:16+00:00'
@@ -21,25 +21,7 @@ In the review, I’ll look at both men’s and women’s Dress Shoes for Back Pa
 **Best Men’s Dress Shoes for Back Pain**
 ### [1. Avery Island Orthopedic Shoes](https://www.amazon.com/dp/B07BVZ6YRR/?tag=p-policy-20)
 The first spot for Best Dress Shoes for Back Pain goes to this Orthopedic Shoe from Avery Island. This Orthopedic shoe is designed for men who crave comfort and style. The shoe features superior Orthofeet's comfort technologies that would help alleviate back pain.
-[](https://www.amazon.com/dp/B07BVZ6YRR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078SYZSVK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007OWTO4A/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0012HR2I8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 Further, if you’ve foot conditions like plantar fasciitis, arthritis, Neuropathy, and
 [claw toes](https://pestpolicy.com/best-shoes-for-claw-toes/)
 among other conditions, this is the shoe to pick.
@@ -49,36 +31,19 @@ The Avery Island Orthopedic Shoe features an orthotic insole that comes with exc
 The extra depth design and the wide toe box provide a comfortable fit that relieves pressure on your sensitive feet.  The toe box allows your toes to move freely while the soft leather upper ensures you’ve got a non-binding fit for additional comfort.
 
 Other than that, this athletic and therapeutic footwear is available in various width options including Extra-Extra-Wide, Extra-Wide, Medium, Wide, and narrow. The widths options ensure you get a perfect customized fit just for you.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Available in various width options
 - Delivers excellent cushioning
 - Comfortable
 - The orthotic insole provides anatomical arch support
 - Wide toe box
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Some people complained that they run big
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [2. SAS Men's Tripad Comfort Leather Walking Shoe](https://www.amazon.com/dp/B00GNJXXDS/?tag=p-policy-20)
 SAS Men's Tripad is a comfortable leather-walking shoe that’s ideal for back pain sufferers. The shoe features a Coolstep™ Footbed, which is a removable footbed that ensures the feet remain dry and comfortable throughout the day.
-[](https://www.amazon.com/dp/B00GNJXXDS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078SYZSVK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007OWTO4A/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0012HR2I8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The Coolstep™ footbeds are washable and antibacterial. Thus, promote healthy and clean foot environment.
 
 The Traditional lace-up design and the durable construction ensure you have a perfect fit for an extended duration. Thus, you can walk or stand for long hours without feeling any discomfort. You’ll appreciate the lightweight cushioning and all-day comfort you’ll experience thanks to the polyurethane soles.
@@ -94,36 +59,19 @@ Another incredible feature is SAS Tongue-Holder. The cushioned tongue and collar
 The SAS men’s shoes are available in many width options including extra-wide, wide, medium, and narrow.  These sizes ensure that whatever your feet type or size you will find a pair that fits perfectly.
 
 You’ll appreciate the arch support and the back support these shoes provide. These shoes alleviate and enhance the health of the feet.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Available in various sizes
 - Ample arch support
 - Excellent cushioning
 - Comfortable
 - Great lace-up design
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Expensive
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [3. Broadway Orthopedic Men’s Loafers](https://www.amazon.com/dp/B003OHC2KW/?tag=p-policy-20)
 Broadway Orthopedic shoes are also the best dress shoes for back pain. They’re comfortable and stylish making them ideal for most work environments.
-[](https://www.amazon.com/dp/B003OHC2KW/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078SYZSVK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007OWTO4A/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0012HR2I8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 These Orthofeet orthotic shoes feature the best orthopedic footwear for back pain surfers and people with various foot conditions.
 
 The shoes have a lightweight ergonomic sole that comes with exceptional orthotic insoles. These features deliver needed anatomical support and cushioning for soft and comfortable wear that relieves heel and foot pain as well as hips and back discomfort.
@@ -135,38 +83,21 @@ Furthermore, these men’s walking shoes are available in various width options 
 benefit from these shoes.
 
 The removable insoles and extra depth design facilitate the use of custom orthotics. This comfort feature aids in easing stress on the wearer’s joints thereby enhancing stability to improve your gait cycle.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Comfortable
 - Well-cushioned
 - Alleviates back discomfort
 - Available in various widths
 - Can use custom orthotics for added comfort
 - Soft upper leather
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - A customer complained that the shoe doesn’t last long
-[/su_list][/su_box][/su_column] [/su_row]
+
 **Best women’s Dress Shoes for Back Pain**
 ### [4. Alegria Women's debra Slip-On](https://www.amazon.com/dp/B06VSJW9HR/?tag=p-policy-20)
 If you want a shoe that is well-detailed, comfortable, supportive, and eases back pain while giving you that professional look, pick the Alegria Women's Debra Slip-On.
-[](https://www.amazon.com/dp/B06VSJW9HR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078SYZSVK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007OWTO4A/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0012HR2I8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 This casual and dress slip-on shoe features a durable leather upper and stain-proof leather layer that’s easy to clean and maintain.
 
 The outsole is slip-resistant, thus protects you from accidental slips or falls. The latex footbed is removable, well-cushioned, and ensures extra comfort each time you slip into these shoes. The footbed also follows the shape of your feet to ensure a natural pain-free movement.
@@ -176,37 +107,20 @@ Other than that, the shoe is roomy enough and can accommodate women with wide fe
 The platform measures about 1" while the heel measures 1.5". This means the shoe is comfortable enough for all-day standing or walking.
 
 The Alegria Women's Debra comes in a variety of prints and colors allowing you to choose a perfect match for your professional look.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Superior arch support
 - Comfortable
 - Slip-resistant
 - Durable leather upper
 - Cushioned
 - Comfortable
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Some customers complained that they are not highly durable
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [5. Dansko Women's Loralie Wedge](https://www.amazon.com/dp/B077VTBHTN/?tag=p-policy-20)
 The Dansko Women's Loralie Wedge stands out as the best shoes for back pain. The cushioned footbed has a memory form that ensures superior arch support for long-lasting comfort.  you can also use custom orthotics for extra comfort.
-[](https://www.amazon.com/dp/B077VTBHTN/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078SYZSVK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007OWTO4A/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0012HR2I8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The 2-inch wedge heel offers a perfect heel height and the sturdy rubber outsole delivers traction and stability for all-day comfort.
 
 The footbed insert and the adjustable buckle trap ensure you get personalized fit. The Leather Upper has a soft textile lining that gives the shoe a smooth feel for a comfortable wear experience.
@@ -214,36 +128,19 @@ The footbed insert and the adjustable buckle trap ensure you get personalized fi
 The Loralie Wedge provides supportive, stylish, and comfort features that allow you to be on your feet all day without any discomfort. The stabilizing PU wedge insert ensures you have needed all-day support.
 
 Dansko is a renowned footwear brand that manufactures innovative designs, which promote overall body health. The Loralie Wedge is available in different sizes and colors. Thus, irrespective of the size of your foot you’ll definitely find a size that suits you perfectly.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Available in different sizes and colors
 - Well-cushioned
 - Comfortable
 - Adjustable buckle strap ensures a secure fit
 - Offers ample support
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - A customer complained that they’re a bit narrow at the toe box
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [6. Drew Shoe Women's Bloom II Mary Jane](https://www.amazon.com/dp/B000TBHZWQ/?tag=p-policy-20)
 Drew Bloom II is a highly comfortable and supportive shoe. Most wearers are pleased with its cushioning and ability to ease back and foot discomfort. Thus, it’s one of the best dress shoes for back pain.
-[](https://www.amazon.com/dp/B000TBHZWQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078SYZSVK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007OWTO4A/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0012HR2I8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 This Mary Jane shoe features a unique Dri-Lex lining that you ensure you have maximum comfort while on your feet for an extended period. You’ll appreciate the high breathability and quick-drying feature of the shoe.
 
 Further, the Drew Bloom II features an AEgis microbe shield. The shield protects your shoe from any staining. The shield also prevents odours and deters nasty bacteria from accumulating inside the shoe. This means your feet will remain dry and fresh throughout the day.
@@ -255,51 +152,35 @@ In addition, the Bloom II Mary Jane shoe comes with two removable insoles that d
 The Firm Heel Counter ensures you have maximum arch support while the soft padded collar promotes extra comfort.
 
 The Polyurethane Rocker Bottom adapts to your natural walking gait to ensure you have correct postures or all-day comfort.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Can use custom orthotics
 - Comfortable
 - Odour and Stain Control mechanism
 - Firm Heel Counter
 - Microbe shield prevents odours and staining
 - Wide toe box
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - A customer complained that the sole was thick and chunky
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [7. Clarks Women's Medora Nina Flat](https://www.amazon.com/dp/B01IAWLT7M/?tag=p-policy-20)
 If you’re looking for a comfortable yet stylish dress shoe that would help alleviate your back pain, then pick the Clarks Women's, Medora Nina.
-[](https://www.amazon.com/dp/B01IAWLT7M/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078SYZSVK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007OWTO4A/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0012HR2I8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The uppers of this Clarks shoe feature a durable leather that’s soft and easy to clean. The adjustable ankle strap ensures you have a secure ad comfortable fit.
 
 The soft cushion technology and the OrthoLite® molded footbed delivers extra comfort. This means you can wear these shoes during long work shifts or walk around with them for extended periods without feeling any foot or back discomfort.
 
 The Clarks Women's Medora shoes have a rubber sole that adds to the shoes’ durability. The heel height is 1.33” and heel measures about 1”. These measurements are ideal for all-day walking or standing. They are not too high or too low, just a perfect fit for extra comfort.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Adjustable ankle strap
 - Cushioned
 - Comfortable
 - Durable rubber outsole
 - Leather upper
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - A customer complained that the shoes are not very breathable
-[/su_list][/su_box][/su_column] [/su_row]
+
 ## Buyers’ Guide for Best Shoes for Back Pain
 ### Durability
 The durability of shoe determines how long the shoe will last and the materials used in its construction that would extend its lifespan. Ensure you choose back pain shoes that would give you value for your money. Check carefully the materials used in the shoe construction. Some materials may cause foot irritation leading to blisters or serious infection.

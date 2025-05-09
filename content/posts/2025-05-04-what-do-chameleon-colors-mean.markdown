@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: What Do Chameleon Colors Mean?
 date: '2025-05-04T19:57:08+00:00'

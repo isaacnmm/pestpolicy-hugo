@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Should You Caulk First Or Paint First?
 date: '2025-05-04T06:53:31+00:00'

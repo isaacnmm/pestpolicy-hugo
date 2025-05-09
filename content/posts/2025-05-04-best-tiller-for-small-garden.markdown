@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: 9 Best Tiller for Small Garden 2025 Reviewed
 date: '2025-05-04T10:44:36+00:00'
@@ -17,29 +17,7 @@ Size and weight of the tiller - A compact design is considered suitable for sma
 ## Run-Down: 9 Best Tiller for Small Garden in 2025
 ### [1. Sun Joe TJ603E electric tiller Garden Tiller](https://www.amazon.com/dp/B00V6IEVXM/?tag=p-policy-20)
 With this Sun Joe model of the electric-powered electric cultivator, the tilling experience is exceptional. It introduces a cleaner and more efficient way to achieve great gardening outcomes.
-[](https://www.amazon.com/dp/B00V6IEVXM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078HB9QR6/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01N39KRRM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000N4UZ80/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00V6IEVXM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004JMZH2G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00602J4MM?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01DYB9KRK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004H4X6Z6/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=aeeeec761ac9e561e0e646e30ca67642)
-[](https://www.amazon.com/dp/B01MYPL2XZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01MSOXMDY/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079CYGP6W/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00OAVXPAM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B074KKY9CG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00D3KJN3O/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B002ZVOLXE/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00ZU1Z2W0/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00RGNW8PO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079KBNTSM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MOT0FNW/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=a9243263f92415d854e1676b7e6ab6ee)
-[](https://www.amazon.com/dp/B00F6EV306/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
 This unit is powered by a 12-amp motor which does an excellent job at pulverizing dirt at 340 RPM. This guarantees maximum aeration when preparing the seedbed for planting.
 The TJ603E series offers you a tilling depth of 8” and a tilling width of 16”.  This allows you to control weed with relative ease and tackle the toughest gardening tasks.
@@ -47,41 +25,20 @@ The six sturdy steel angled tines are designed for maximum performance and durab
 - Its rear-mounted wheels feature 3-level adjustments and serve to ease maneuverability.
 - This feature also allows you to adjust the tilling depth to variable levels in different terrains while its collapsible handles facilitate storage when the tool is not in use.
 Overall, this unit is guaranteed to offer you a hassle-free operation and it passes for an excellent choice for all your mini-gardening tasks. In addition, mini-tillers should be highly portable to guarantee that hassle-free performance on the go.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Ease of cleaning and maintenance because it is electric-powered
 - Features an adjustable wheel position mechanism
 - Features a powerful motor
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - Hard to assemble
-[/su_list][/su_box][/su_column] [/su_row]
+
 https://www.youtube.com/watch?v=S_xTLzzTZHo
 Read Also:
 [Best PTO Tiller For The Money](https://pestpolicy.com/best-pto-tiller-for-the-money/)
 ### [2. Earthwise TC70025 7.5” corded electric tiller](https://www.amazon.com/dp/B06Y24KQYN/?tag=p-policy-20)
 This Earthwise series is bound to improve your gardening experience by ensuring that your garden is ready for planting with relative ease.
-[](https://www.amazon.com/dp/B06Y24KQYN/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078HB9QR6/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01N39KRRM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000N4UZ80/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00V6IEVXM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004JMZH2G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00602J4MM?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01DYB9KRK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004H4X6Z6/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=aeeeec761ac9e561e0e646e30ca67642)
-[](https://www.amazon.com/dp/B01MYPL2XZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01MSOXMDY/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079CYGP6W/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00OAVXPAM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B074KKY9CG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00D3KJN3O/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B002ZVOLXE/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00ZU1Z2W0/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00RGNW8PO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079KBNTSM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MOT0FNW/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=a9243263f92415d854e1676b7e6ab6ee)
-[](https://www.amazon.com/dp/B00F6EV306/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
 With this unit, your tilling experience is bound to be improved by this miniature powerhouse whose 2.5Amp electric engine runs swiftly and for prolonged periods.
 This model is powerful enough to generate 280rpm, which is sufficient for tilling raised gardens and small plots in no time.
@@ -90,42 +47,21 @@ This unit’s four steel tines are highly durable and will offer you a cultivati
 The lightweight construction design of this unit renders it highly maneuverable and portable for the effortless tilling experience.
 What’s more? This unit’s electric engine leaves less carbon footprint as compared to gas-powered models.
 Its soft and ergonomic handles guarantee maximum user comfort.  The highly affordable nature of this unit makes it the ideal choice if you are dealing with a limited budget.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Ideal for small plots
 - Features sharp tines
 - Highly durable
 - Excellent working speeds
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - It has a small electric cord
-[/su_list][/su_box][/su_column] [/su_row]
+
 https://www.youtube.com/watch?v=CNlWgnmbX3Y
 Read Also:
 [Best Rotavator for Allotment](https://pestpolicy.com/best-rotavator-for-allotment/)
 ### [3. Earthquake MC43 cultivator 43cc 10”](https://www.amazon.com/dp/B07L9YVTCB/?tag=p-policy-20)
 This Earthquake series ranks only second to the previous model. It is the ideal choice for cultivating weed, aerating the soil, and applying fertilizer. It offers you a tilling depth of 6” and cut 10” wide.
-[](https://www.amazon.com/dp/B07L9YVTCB/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078HB9QR6/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01N39KRRM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000N4UZ80/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00V6IEVXM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004JMZH2G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00602J4MM?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01DYB9KRK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004H4X6Z6/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=aeeeec761ac9e561e0e646e30ca67642)
-[](https://www.amazon.com/dp/B01MYPL2XZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01MSOXMDY/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079CYGP6W/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00OAVXPAM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B074KKY9CG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00D3KJN3O/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B002ZVOLXE/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00ZU1Z2W0/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00RGNW8PO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079KBNTSM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MOT0FNW/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=a9243263f92415d854e1676b7e6ab6ee)
-[](https://www.amazon.com/dp/B00F6EV306/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
 This cultivator’s 2-cycle viper 43cc engine is powerful enough to till through various types of garden soils.
 Weighing in at 33lbs, its lightweight design eases maneuverability around the garden without worrying about damaging plants.
@@ -133,41 +69,20 @@ Unlike other rival electric models which require you to plug an extension cable 
 - The MC43 does a valuable tool that is guaranteed to leave your garden in a prime condition in no time.
 - Its gas-powered option spares you the hassle of relying on power extension cords to access the garden.
 Unlike other mini-tillers in our featured list, this unit features a recoil start system rather than an electric one which means you have to pull a cord to start it. Its powerful engine is sufficient to perform different gardening tasks.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Highly dependable
 - Offers a powerful performance
 - Fuel efficient
 - Versatile
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - Relatively expensive
-[/su_list][/su_box][/su_column] [/su_row]
+
 Read Also:
 [Best Tiller for Roots](https://pestpolicy.com/best-tiller-for-roots/)
 ### [4. Mantis 7924 two-cycle tiller](https://www.amazon.com/dp/B00TY87WIC/?tag=p-policy-20)
 At just 20lbs, this is the lightest tiller in the market which is capable of taking on heavy-duty tasks such as digging planting holes, and breaking through tough sod with relative ease.
-[](https://www.amazon.com/dp/B00TY87WIC/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078HB9QR6/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01N39KRRM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000N4UZ80/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00V6IEVXM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004JMZH2G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00602J4MM?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01DYB9KRK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004H4X6Z6/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=aeeeec761ac9e561e0e646e30ca67642)
-[](https://www.amazon.com/dp/B01MYPL2XZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01MSOXMDY/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079CYGP6W/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00OAVXPAM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B074KKY9CG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00D3KJN3O/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B002ZVOLXE/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00ZU1Z2W0/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00RGNW8PO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079KBNTSM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MOT0FNW/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=a9243263f92415d854e1676b7e6ab6ee)
-[](https://www.amazon.com/dp/B00F6EV306/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
 This unit also offers high precision weeding performance at the flip of the tilling tines. This feature also allows you to weed around delicate seedlings.
 - This Mantis tiller is powered by a 2-cycle 21.2cc FastStart technology engine.
@@ -176,40 +91,19 @@ At just 9” wide, this unit has a compact design and will allow you to till in 
 It is capable of tilling up to 10” deep, making it the ideal choice for creating a strong foundation for plants. Its uniquely configured tines are sufficient for digging into the toughest soils.
 This model is highly versatile and you only need to flip down the tines to convert it into a powerful weeder.
 It also offers you the option of aerating and plowing your lawn with fewer hassles.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Ergonomic and over molded grips for improved comfort
 - Fold down handles for improved portability and storage
 - Thumb controlled safety switch
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - Relatively expensive
-[/su_list][/su_box][/su_column] [/su_row]
+
 Read Also:
 [How To Use a Tiller To Remove Grass](https://pestpolicy.com/how-to-use-a-tiller-to-remove-grass/)
 ### [5. Black and Decker LGC120 mini-tiller](https://www.amazon.com/dp/B00TY87WIC/?tag=p-policy-20)
 This cordless garden tiller is powered by 20V lithium-ion batteries offering you an efficient and modern option for tackling your everyday gardening tasks.
-[](https://www.amazon.com/dp/B004JMZH2G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078HB9QR6/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01N39KRRM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000N4UZ80/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00V6IEVXM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004JMZH2G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00602J4MM?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01DYB9KRK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004H4X6Z6/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=aeeeec761ac9e561e0e646e30ca67642)
-[](https://www.amazon.com/dp/B01MYPL2XZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01MSOXMDY/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079CYGP6W/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00OAVXPAM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B074KKY9CG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00D3KJN3O/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B002ZVOLXE/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00ZU1Z2W0/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00RGNW8PO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079KBNTSM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MOT0FNW/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=a9243263f92415d854e1676b7e6ab6ee)
-[](https://www.amazon.com/dp/B00F6EV306/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
 Its rechargeable batteries ensure that your contribution to the carbon footprint is significantly reduced. This tiller is capable of tilling 350 square feet on a single charge.
 Counter oscillating tines ensure that no weeds stick to the equipment hence guaranteeing a smooth tilling performance.
@@ -218,40 +112,19 @@ This tool is ideal for tilling garden beds, landscaping, and weeding. It is also
 Black and Decker's cordless tiller has a comfortable grip and a relaxed hold that assists you to dig deeper into the ground.
 It features a marvelous design with an adjustable feature for the handle.  Its lightweight design spares you the hassle of fatigue during usage.
 A telescoping tube allows you to adjust the tiller to the desired user comfort.  The highly versatile nature of this electric cultivator allows you to prepare dried-out sections for seeding.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Rechargeable and highly flexible
 - Counter oscillating tines remove entanglements
 - Environmental friendly
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - Not ideal for medium sized gardens
-[/su_list][/su_box][/su_column] [/su_row]
+
 Read Also:
 [Best Tow Behind Fertilizer Spreader](https://pestpolicy.com/best-tow-behind-fertilizer-spreader/)
 ### [6. Schiller Grounds Mantis Tiller 7940](https://www.amazon.com/dp/B00N6X9VY4/?tag=p-policy-20)
 This Mantis tiller is powered by a 4-cycle Honda engine which provides enough torque to power through tough soil, providing twice the speed of other tillers in its class.
-[](https://www.amazon.com/dp/B00N6X9VY4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078HB9QR6/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01N39KRRM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000N4UZ80/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00V6IEVXM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004JMZH2G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00602J4MM?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01DYB9KRK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004H4X6Z6/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=aeeeec761ac9e561e0e646e30ca67642)
-[](https://www.amazon.com/dp/B01MYPL2XZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01MSOXMDY/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079CYGP6W/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00OAVXPAM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B074KKY9CG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00D3KJN3O/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B002ZVOLXE/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00ZU1Z2W0/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00RGNW8PO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079KBNTSM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MOT0FNW/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=a9243263f92415d854e1676b7e6ab6ee)
-[](https://www.amazon.com/dp/B00F6EV306/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
 The cultivator’s 25cc is commercial-grade which compliments the durable power train gear system which is housed in heavy-duty molding.
 - This Mantis series’ unique transmission design in addition to its lightweight design guarantee heavy-duty performance.
@@ -259,42 +132,21 @@ This tiller’s steel tine rotates at a rate of 240rpm, providing maximum sod-br
 In addition, this tiller features curved and highly durable tines which give a lifetime guarantee against breakage. They offer a maximum tilling depth of 10”.
 This tool weighs only 24 pounds, making it one of the lightest options for cultivating small gardens. Despite its lightweight design, this cultivator allows you to till through compacted soil, but it is also easy to use and carry around.
 The ergonomic handle design of this tool guarantees you a blister-free operation. Its infinite speed technology allows you to power up the machine when needed. The folding handle design facilitates storage.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Convenient
 - It is highly durable
 - Versatile
 - It features strong and durable tines
 - It features a powerful engine
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - Not environmental friendly
-[/su_list][/su_box][/su_column] [/su_row]
+
 Read Also:
 [Best Garden Tiller for a Woman](https://pestpolicy.com/best-garden-tiller-for-a-woman/)
 ### [7. Greenworks 10” 27072 8 amp corded cultivator](https://www.amazon.com/dp/B00D3KJN3O/?tag=p-policy-20)
 The 27072 series is powered by a clean engine that provides excellent weeding, digging, and gardening performance.
-[](https://www.amazon.com/dp/B00D3KJN3O/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078HB9QR6/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01N39KRRM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000N4UZ80/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00V6IEVXM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004JMZH2G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00602J4MM?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01DYB9KRK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004H4X6Z6/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=aeeeec761ac9e561e0e646e30ca67642)
-[](https://www.amazon.com/dp/B01MYPL2XZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01MSOXMDY/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079CYGP6W/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00OAVXPAM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B074KKY9CG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00D3KJN3O/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B002ZVOLXE/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00ZU1Z2W0/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00RGNW8PO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079KBNTSM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MOT0FNW/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=a9243263f92415d854e1676b7e6ab6ee)
-[](https://www.amazon.com/dp/B00F6EV306/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
 With this environmentally friendly option, you are guaranteed to power through tough sod in no time, courtesy of the 8Amp electric motor engine.
 - It generates sufficient energy to power through all types of soil in your small garden.
@@ -303,14 +155,15 @@ With a maximum tilling depth of 5”, this tool allows the user to adjust the ti
 As compared to other mini tillers in its class, this cultivator features four 8” tines which provide exceptional performance with a rotating speed of 150rpm. This unit measures 15” by 15” by 33” and features an adjustable handlebar.
 For improved ease of use and convenience, this tool has a push start button whereas a cord lock ensures that the power cable remains attached in place.
 - The lightweight design of this Green works tiller improves maneuverability around tight spaces.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - It is efficient and environmental friendly
 - Tubular handle design guarantees user comfort
 - Tiller adjustable feature makes the tool ideal for all soils
 - Ideal for all soil types
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - Corded features renders it inflexible
-[/su_list][/su_box][/su_column] [/su_row]
+
 Read Also:
 [Best Electric Tiller for Clay Soil](https://pestpolicy.com/best-electric-tiller-for-clay-soil/)
 ## Considerations for Best Tiller for small garden

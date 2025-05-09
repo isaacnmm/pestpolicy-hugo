@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Ant Control in Everett
 date: '2025-05-04T08:31:01+00:00'

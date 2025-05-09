@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: 7 Best Riding Lawn Mower for Zoysia Grass 2025
 date: '2025-05-04T07:00:01+00:00'
@@ -24,16 +24,17 @@ It's suitable for flat medium-sized lawns. With a 2-year warranty, the manufactu
 It has a mid-back seat and a 13-inch height-adjustable steering wheel for maximum comfort while mowing. Check
 [how to choose your riding lawnmower](https://pestpolicy.com/how-to-choose-a-riding-lawn-mower/)
 .
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - The 18-inch turning radius for maneuvering obstructions like trees
 - Large 30-inch cutting deck
 - Sturdy structure making it durable
 - Large 382 cc Engine
 - Auto choke system
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - Noisy
 - Air pollution
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [2. Husqvarna LTH1738 Gas Riding Mower - Second Mower](https://www.amazon.com/dp/B07B17M95P/?tag=p-policy-20)
 The mower is sturdy and durable materials make it conducive to mowing the robust zoysia grass lawns.
 With a dimension of 68.2x38x41.4 and weighing a paltry 400 pounds, the mower is very easy to store.
@@ -42,16 +43,17 @@ he mower is perfect for trimming tuffs of any size courtesy of its 17 horsepower
 The mower comes with a 42-inc deck housing two durable stamped steel blades. The large deck and blades ensure you cover a vast space in one pass.
 The compact size of the mower makes it easy for you to access tinny spaces. In addition to that, it has two sets of wheels with trends for better traction and stability.
 The mower makes mowing fun. Its great features like fender-mounted height adjustment ensure you easily adjust its height wherever you need to. Its comfortable seats and ergonomic steering wheels ensure you remain comfortable during the whole trimming process.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Durable cutting deck
 - Hydrostatic transmission for better performance and control
 - Ergonomic steering wheel for excellent handling
 - Versatility as you can add attachments
 - Air induction mowing technology
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - Air pollution
 - No assembly manual
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [3. Husqvarna MZ61 61-inch 27 Zero-Turn Riding Mower](https://www.amazon.com/dp/B00BIY0DLS/?tag=p-policy-20)
 The majestic mower comes in attractive colors of black and orange. It's dimensions of 775.5x76x42 inches, and weight of 770 pounds makes it hard to transport.
 The mower comes with a potent engine with an output of 23 horsepower. As a result, it's effortless for you to mow a large piece of ground in a short time.
@@ -61,15 +63,16 @@ This mower is perfect for vast lawns. It has a huge deck (54-inch) with three bl
 The mower is suited to mow any lawn from medium to large yards. Its 0-degree turn radius hydraulic-wheel-drives give it precise maneuver ensuring that the mower rotates around its axis without going off its course.
 When it comes to comfort, few mowers will compete with this one. It has a high back seat with an armrest and foam-padded hand grips with vibration arrestors.
 Vibration arrestors mean you will hardly notice that you are cutting through zoysia grass.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Large 9-bushel triple bag collection
 - Strong engine for high performance
 - 3-in-1 mowing mechanism bagging, mulching, side discharge)
 - Comfortable seat
 - Hour meter service with a reminder
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - Heavy
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [4. Swisher Z3166CPKA Kawasaki Big MOW 31 HP/66 inch](https://www.amazon.com/dp/B01MXWO7XU/?tag=p-policy-20)
 The mower weighs 1380 pounds making it very hard to transport. The dimensions of 113.5x83x68 inches make it hard to store in a small space.
 Many of its parts are steel made giving the mower strength and durability. If zoysiagrass has been giving you trouble mowing, this beast is what you need.
@@ -79,16 +82,17 @@ It comes with a dual hydro gear 3400 for power which makes mowing large turfs a 
 - The mower has commercial-grade iron blades with a cutting height adjustment mechanism starting from 1.25 to 5-inches.
 The mower is suitable for working on large tracts of land, but it's miserable when it comes to mowing in tight spaces due to its vast size.
 The mower is very comfortable and easy to maneuver with the 0 turn mechanism that keeps it very steady. Its seat is very soft and is ideal for long working hours.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Large cutting deck
 - Commercial-grade Kawasaki engine
 - Strong commercial-grade blades
 - Electric deck height adjustment system
 - Comfortable adjustable seats
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - Heavy
 - Air pollution
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [5. Troy-Bilt 540cc Briggs and Stratton Intek Automatic](https://www.amazon.com/dp/B079KBNTSM/?tag=p-policy-20)
 The tractor design lawnmower has dimensions of 69.8x46x35.5 inches. It also weighs 535 pounds c.ourtesy of its reliable, durable components.
 - The mower has a powerful 19 HP 540cc Briggs & Stratton engine which gives it the power to mow its way through any zoysia-grass turf.
@@ -98,14 +102,15 @@ The mower's humongous 46-inch side discharge mowing deck leaves fine grass chips
 - The mower has large wheels with trends making it easy for you to mow in different weather conditions.
 The trends grip the ground firmly ensuring that mowing is comfortable even in wet conditions. It's suitable for mowing large zoysia grass lawns.
 Comfort goes hand in hand with this mower. Its mid-seat is very comfortable and ensures you feel less vibration when mowing.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - One cylinder transmission (automatic)
 - Mid-back seat that’s comfortable
 - Comfortable steering wheel
 - Deck wash system for easy cleaning
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - Has CVT transmission
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [6. Craftsman T150 19 HP Gold 46-Inch Gas-Riding Lawn Mower](https://www.amazon.com/dp/B07NWBCGYS/?tag=p-policy-20)
 The mower has dimensions of 70 by 51 by 35.5 inches and weighs a paltry 490 pounds. Its sturdy design gives you comfort mowing through any zoysia grass lawn.
 The mower comes with a powerful 19 HP Briggs & Stratton engine. The engine is adapted for commercial work, making it easy for you to lawn large tracts in record time.
@@ -113,15 +118,16 @@ The mower has a 46-inch cutting deck that holds a large blade, making it a beast
 - The mower has 15-inch front wheels and 20-inch rear wheels which gives it a proper ground clearance for better height adjustment.
 - The wheels also offer better stability and traction for ease in maneuverability. It's ideal for large to medium lawns.
 The mower has a very comfortable seat. It also has a cup holder which keeps your drink in place when mowing. The shock absorbers ensure you have a good time while mowing.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Hydro-transmission
 - Comfortable mid-back seat
 - Ability to mow in reverse
 - Large deck
 - Powerful engine
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - Poor front grill design
-[/su_list][/su_box][/su_column] [/su_row]
+
 Related:
 [Best Riding Lawn Mower for 2 Acres 2025](https://pestpolicy.com/best-riding-lawn-mower-for-2-acres/)
 ### [7. Ariens 915213 Zero Turn Mower](https://www.amazon.com/dp/B00BIY0DLS/?tag=p-policy-20)
@@ -133,14 +139,15 @@ The fact that you can mow forward or on the reverse makes this mower a gem.
 - With a 0 turning radius, you will easily maintain your mowing course, which saves time when mowing.
 - It is suitable for cutting medium to large lawns, making it a must-have for landscapers.
 The easy to handle steering wheel and comfortable seat make it a darling to those who prefer mowing for long hours.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - 42 –inch cutting deck
 - Powerful engine
 - Can double up as a trimmer
 - Sturdy and durable
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - Gas-powered hence pollute the environment
-[/su_list][/su_box][/su_column] [/su_row]
+
 ## Considerations for Riding Lawn Mowers
 ### 1. Construction and deck size
 If you are looking to buy a riding mower to assist in trimming Zoysia grass, you must purchase a sturdy, durable mower.

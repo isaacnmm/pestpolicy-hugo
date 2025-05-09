@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Are There Any Slip-resistant Shoes That Provide Stability While Painting On
   Potentially Slippery Surfaces?

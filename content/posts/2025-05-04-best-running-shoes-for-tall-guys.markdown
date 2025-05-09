@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: 7 Best Running Shoes for Tall Guys 2025
 date: '2025-05-04T07:25:17+00:00'
@@ -20,34 +20,7 @@ Also Read:
 ## Review: 7 Best Running Shoes for Tall Guys
 ### [1. ASICS Men's Gel-Nimbus 23 Running Shoes](https://www.amazon.com/dp/B08MLCX6WQ/?tag=p-policy-20)- Running Shoes for Tall Guys
 We begin our review for the Best Running Shoes for Tall Guys with this high-performing, reliable, and comfortable ASICS Men's Gel-Nimbus 23 Running Shoes.
-[](https://www.amazon.com/dp/B08MLCX6WQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B082CVKMBL/tag=p-policy-20)
-[](https://www.amazon.com/dp/B07897QMX4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01N1I12JN/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MNJWWKZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07NBKSBH7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007C1O3SK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KJPJRVR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01CTGOD9G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07BVZ6YRR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078SYZSVK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007OWTO4A/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0012HR2I8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The Gel-Nimbus 23 features FlyteFoam Propel Technology that provides the best bounce-back ensuring the wearer enjoys soft cushioning throughout the running session. Further, the GEL technology cushioning offers exceptional shock absorption for injury-free runs.
 
 Other than that, the Nimbus 23 also boasts of a FLYTEFOAM technology that ensures lightweight cushioning throughout the running period. The OrthoLite X-55 sock liner provides extra comfort.
@@ -59,47 +32,21 @@ Besides that, the padded collar and tongue provide additional comfort and suppor
 You’ll also appreciate the excellent lacing design of the Nimbus 23. The laces provide flexibility and the ability to adjust the tightness or looseness of your shoes.
 
 Moreover, the outsole of Gel Nimbus 23 features the AHAR compound. The AHAR is a highly durable component that enhances the shoe’s traction. The lugs at the bottom also provide additional grip and over-all shoe flexibility.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Plush cushioning
 - Reliable outsole
 - Highly comfortable
 - Available in wide width options
 - Excellent lockdown
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Pricey
-[/su_list][/su_box][/su_column] [/su_row]
+
 Read Also:
 [Best Men’s Running Shoes for Bad Knees](https://pestpolicy.com/best-mens-running-shoes-for-bad-knees/)
 ### [2. Under Armour Men's Tribase Reign 2.0 Cross Trainer](https://www.amazon.com/dp/B07NNV55SG/tag=p-policy-20)– best running shoes for tall guys
 Most tall people love the comfort and versatility that the Under Armour Men's Tribase Reign 2.0 provides. It’s one of the best cross-trainers that allows you to do almost all kinds of workouts without any destruction.
-[](https://www.amazon.com/dp/B07NNV55SG/tag=p-policy-20)
-[](https://www.amazon.com/dp/B082CVKMBL/tag=p-policy-20)
-[](https://www.amazon.com/dp/B07897QMX4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01N1I12JN/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MNJWWKZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07NBKSBH7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007C1O3SK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KJPJRVR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01CTGOD9G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07BVZ6YRR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078SYZSVK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007OWTO4A/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0012HR2I8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 You’ll love the upgraded TriBase outsole and the upper section. For this iteration, the upper includes an engineered zonal flex that provides a form-fitting design. The mesh promotes a snug and breathable feel for a comfortable experience during workout sessions.
 
 Furthermore, the upper also has TPU overlays that work to reinforce the mesh material in regions that are likely to experience high levels of abrasion. This addition improves the overall durability of the shoe.
@@ -111,45 +58,19 @@ Other than that, the outsole features UA TriBase, which helps to maximize ground
 Furthermore, most people love the thin cushioning that allows them to have enhanced ground contact. The shoe features Micro G foam that provides a stable and supportive platform. This form offers protection against impact while ensuring reliable stability.
 
 In addition, the removable insoles allow you to use custom orthotics if you’re in need of extra comfort and support. You can also remove the insoles if you’re in need of extra space or want a firmer platform.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Highly versatile ideal for running, HIIT, weightlifting, and casual wear
 - Durable construction
 - Reliable upper
 - Flexible midsole
 - Highly comfortable running shoe
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Expensive
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [3. HOKA ONE ONE Rincon](https://www.amazon.com/dp/B07L5F7KXL/?tag=p-policy-20)- best shoes for tall guys
 If you’re looking for the best shoes for big and tall guys pick the HOKA ONE ONE Rincon. Most Wide feet and heavier guys agree that these shoes are ideal for running.
-[](https://www.amazon.com/dp/B07L5F7KXL/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B082CVKMBL/tag=p-policy-20)
-[](https://www.amazon.com/dp/B07897QMX4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01N1I12JN/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MNJWWKZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07NBKSBH7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007C1O3SK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KJPJRVR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01CTGOD9G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07BVZ6YRR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078SYZSVK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007OWTO4A/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0012HR2I8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The Hoka One One Rincon provides lightweight protection and excellent cushioning allowing you to run your races without any pain or injuries. Thus, if you want a shoe that would provide you excellent cushioning, responsiveness, and comfort choose the HOKA ONE ONE Rincon.
 
 With the Hoka One Rincon, you don’t need to worry about the distance you should cover. You’ll love the amazing feeling on your feet. You’ll be surprised that you can actually go for longer distances and do other up-tempo track exercises while experiencing excellent cushioning.
@@ -163,48 +84,22 @@ In addition, the strategically placed high-abrasion rubber components deliver Fu
 Moreover, the HOKA ONE ONE Rincon incorporates the early-stage
 *Meta-*
 Rocker technology in its construction. This technology encourages smoother heel-to-toe transitions.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Meta rocker technology
 - Highly versatile
 - Breathable
 - Comfortable
 - Lightweight
 - Well-cushioned and responsive
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Long laces
-[/su_list][/su_box][/su_column] [/su_row]
+
 Read Also:
 [Best Running Shoes for Ice and Snow](https://pestpolicy.com/best-running-shoes-for-ice-and-snow/)
 ### [4. Brooks Men's Adrenaline GTS 20](https://www.amazon.com/dp/B07MHM933W/tag=p-policy-20)
 Brooks Men's Adrenaline GTS 20 is an excellent shoe for those tall men who love running. it has exceptional features and technologies that make it an ideal choice for both short and long-distance running.
-[](https://www.amazon.com/dp/B07MHM933W/tag=p-policy-20)
-[](https://www.amazon.com/dp/B082CVKMBL/tag=p-policy-20)
-[](https://www.amazon.com/dp/B07897QMX4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01N1I12JN/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MNJWWKZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07NBKSBH7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007C1O3SK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KJPJRVR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01CTGOD9G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07BVZ6YRR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078SYZSVK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007OWTO4A/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0012HR2I8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 Therefore, if you’re looking for a perfect combination of cushion, flexibility, reliability, and support pick the Brooks GTS 20. The low-profile look and innovative design of this shoe will make you stand out during your running sessions.
 
 Other than that, the upper part features an updated engineered mesh fabric that incorporates a 3D print design. This design reinforces the upper to give it reliable structure and fit without the added weight. Further, the mesh uppers allow excellent breathability.
@@ -214,46 +109,20 @@ In addition, the Brooks Adrenaline GTS 20 features DNA LOFT Crash Pad that works
 Furthermore, the guide rail holistic support technology prevents excess movement. Thus, protects the knees, which are prone to injuries during running. hence, you run comfortably without worrying about injuries. Thus focus on achieving your running goals.
 
 You’ll definitely love the support and cushion that the Brooks GTS 20 provides. The shoe offers excellent stability and support, helping to protect you from overpronation. You can use the shoe for road running, gym training, or any other workout.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Excellent cushioning
 - Lightweight running shoe
 - Variety of color options
 - Durable
 - Available in wide width options
 - Breathable
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - You might need to order one size higher
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [5. Saucony Men's Echelon 8](https://www.amazon.com/dp/B086H3ZHTC/tag=p-policy-20)
 Saucony Men's Echelon 8 is an excellent running shoe and most tall guys love the accommodating and supportive design of this shoe. If you have foot conditions like hammertoes, bunions, Morton's Neuroma, or any other foot condition, this is the shoe for you.
-[](https://www.amazon.com/dp/B086H3ZHTC/tag=p-policy-20)
-[](https://www.amazon.com/dp/B082CVKMBL/tag=p-policy-20)
-[](https://www.amazon.com/dp/B07897QMX4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01N1I12JN/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MNJWWKZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07NBKSBH7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007C1O3SK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KJPJRVR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01CTGOD9G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07BVZ6YRR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078SYZSVK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007OWTO4A/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0012HR2I8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 You’ll love the spacious toe box that allows you to freely wiggle your toes as you run while protecting the sensitive parts of your foot.
 
 Other than that, the upper incorporates a combination of synthetic and mesh material that ensures adequate breathability and comfort.
@@ -265,45 +134,19 @@ Besides that, Saucony Echelon 8 incorporates PWRRUN cushioning in its constructi
 The platform of the Echelon 8 is stable and offers a wide base providing the balance needed to maneuver through your running terrain. The TRI-FLEX outsole enhances flexibility.
 
 In addition, the shoe comes with an Orthotic-friendly sock liner that offers superior step-in comfort. You can also remove the orthotics and replace them with custom-made orthotics.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Spacious toe box
 - Highly comfortable
 - Excellent cushioning
 - Exceptional stability
 - Durable
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Pricey
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [6. ASICS Men's Gel-Kayano 27 Running Shoes](https://www.amazon.com/dp/B08613PDY4/tag=p-policy-20)
 Big, tall, and heavier men will benefit from the support, comfort, and cushioning that the ASICS Men's Gel-Kayano 27 provides. Heavier runners appreciate the cushion and support that the shoe provides.
-[](https://www.amazon.com/dp/B08613PDY4/tag=p-policy-20)
-[](https://www.amazon.com/dp/B082CVKMBL/tag=p-policy-20)
-[](https://www.amazon.com/dp/B07897QMX4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01N1I12JN/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MNJWWKZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07NBKSBH7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007C1O3SK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KJPJRVR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01CTGOD9G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07BVZ6YRR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078SYZSVK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007OWTO4A/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0012HR2I8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The Gel-Kayano 27 is one of the best stability running shoes for tall and heavier men. It has great features and technologies to make running or walking a pleasant experience.
 
 For starters, the shoe incorporates FlyteFoam Propel Technology in its construction. This technology offers energetic bounce back allowing you to enjoy your runs.
@@ -313,45 +156,19 @@ Other than that, the GEL Technology Cushioning at the Rearfoot and Forefoot help
 Moreover, the upper consists of a synthetic, and mesh material that hold the foot in place to prevent in-shoe wobbling. The heel counter also helps to prevent heel slippage. However, some reviewers were not pleased with the breathability. They described it as average.
 
 Besides that, the Kayano 27 features Dynamic DuoMax Support technology that works to improve the shoe’s stability and support while reducing weight and enhancing platform support. Further, space trusstic Technology helps to reduce the overall weight of the sole ensuring extra stability as you run.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Durable
 - Highly comfortable
 - Excellent stability
 - Versatile ideal; for walking, running, and various workouts
 - Wide option available
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - A bit pricey
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [7. New Balance Men's Fresh Foam 1080 V10 Running Shoe](https://www.amazon.com/dp/B0815YVM7N/tag=p-policy-20)
 The New Balance Men's Fresh Foam 1080 V10 is one of the best Cushioned Running Shoes for tall guys. The shoe is designed to provide unmatched comfort and support to almost all foot types and sizes.
-[](https://www.amazon.com/dp/B0815YVM7N/tag=p-policy-20)
-[](https://www.amazon.com/dp/B082CVKMBL/tag=p-policy-20)
-[](https://www.amazon.com/dp/B07897QMX4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01N1I12JN/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MNJWWKZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07NBKSBH7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007C1O3SK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KJPJRVR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01CTGOD9G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07BVZ6YRR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078SYZSVK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007OWTO4A/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0012HR2I8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 For starters, the upper incorporates an engineered knit upper that’s stretchy and accommodates different foot shapes and sizes. The upper also allows for adequate breathability.  The structured heel counter helps to hold the foot in place, thus preventing accidental shoe removal.
 
 Furthermore, the toe box is spacious enough to allow the natural movement of the foot. This feature makes the shoe ideal for
@@ -363,7 +180,7 @@ You’ll love the stability that the NB 1080 V10 provides. You’ll notice that 
 The shoe has a Fresh Foam X midsole that provides Fresh Foam cushioning. This component provides underfoot softness and contributes to the overall lightness of the shoe.
 
 Furthermore, the outsole incorporates a blown rubber compound with separate lug sections at the bottom. The segmented outsole provides additional forefoot flexibility to allow you to run more efficiently.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Stable
 - Comfortable
 - Durable
@@ -371,9 +188,10 @@ Furthermore, the outsole incorporates a blown rubber compound with separate lug 
 - Impressive upper
 - Ideal for wide feet
 - Excellent shock absorption
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Some people complain that it’s too tight and the design is terrible
-[/su_list][/su_box][/su_column] [/su_row]
+
 ## Guide for the Best Running Shoes for Tall Guys
 In this guide, I’ll provide some of the factors you need to consider when buying the best running shoes for tall guys.
 **Avoid Shoes with Heels**

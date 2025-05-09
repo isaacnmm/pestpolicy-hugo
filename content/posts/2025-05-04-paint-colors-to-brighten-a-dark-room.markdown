@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Paint Colors to Brighten a Dark Room
 date: '2025-05-04T16:06:06+00:00'

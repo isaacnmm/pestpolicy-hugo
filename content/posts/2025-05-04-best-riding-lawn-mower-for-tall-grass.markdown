@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: 7 Best Riding Lawn Mower for Tall Grass 2025
 date: '2025-05-04T07:39:54+00:00'
@@ -28,14 +28,15 @@ Its strong engine at a pocket-friendly price is what makes this tractor mower th
 Its mulching deck can be adjusted to five different heights - check these
 [mowers with mulcher](https://pestpolicy.com/best-lawn-mower-with-mulcher/)
 . This is a basic ride-on mower that suits the needs of most users at a really friendly price.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Friendly price
 - Strong engine with a speed transmission
 - Capable of cutting tall and wet grass
 - Features a 3-in-1 deck
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - Unsuitable for hilly lawns because the engine is mounted at the back
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [2. Cub Cadet Xt1 Enduro Series (Lt 42 In. 18 Hp) Gas Front-Engine](https://www.amazon.com/dp/B017S0JE1K/?tag=p-policy-20)
 Cub Cadet’s range of ride-on lawn tall grass mowers makes the top list of our featured models in this review with their power packed Xt1 Enduro Series.
 This front engine riding mower is not only incredibly fairly priced but is also performs impressively with its smooth hydrostatic transmission in place of shift gears.
@@ -43,28 +44,30 @@ This front engine riding mower is not only incredibly fairly priced but is also 
 - It stands out as one of the most impressive tractor mowers in its class due to its ability to cut tall gas cleanly and precisely.
 A fender-mounted lever and a cruise control button allow the user to focus on steering the tractor mower as it automatically maintains the ideal speed.
 If you’re looking to trim tall grass on slightly uneven ground, this rear-wheel-driven tractor mower stands out from the others due to its exceptional performance and smooth ride.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Adjustable seating makes it easy to operate
 - Built-in headlights for the best mowing conditions at any time of day
 - Highly affordable
 - Cruise control function
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - The only downside of the Xt1 Enduro Series is that its single cylinder 18 HP engine is relatively weak compared to other models in its class.
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [3. Ryobi 38-inches 100 Ah Battery Rear Engine (Electric) Riding Mower](https://www.amazon.com/dp/B072J8VGDD/?tag=p-policy-20)
 This tractor mower runs for two hours after an overnight charging session. It allows users to mow for about an hour and a half before parking it for the day.
 Each blade is powered by its own motor, which ensures that the mower does not lose speed when it encounters long and thick patches of grass.
 Although this tractor mower is not ideal for steep gradients, it performs incredibly well on hilly lawns.
 The Ryobi RM480E rivals similar fuel-powered gas-powered ride-on mowers in terms of lower cut quality, speed (5mph in cutting mode), agility, and user ride experience.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - It has excellent ground traction
 - Provides a clean and quiet operation
 - It has a relatively large cutting deck (38”)
 - It is environmental friendly
 - Features a cruise control button
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - Not suitable for steep lawns
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [4. Husqvarna 960430211 YTA18542 18.5 hp Fast Continously](https://www.amazon.com/dp/B019ZN0WGE/?tag=p-policy-20)
 When it comes to cutting that tall grass, you need the most efficient mower. The Husqvarna Tractor Mower is just the right tool for the job which cuts grass more efficiently and faster than a standard mower.
 This model’s auto-transmission design makes it easier for users to operate it for prolonged periods without the need for maintenance.
@@ -74,14 +77,15 @@ A feeder that is conveniently attached to the Husqvarna 18.5hp riding mower help
 The seat is specially padded and contoured for the user’s comfort to ensure a smooth ride. This model features a large set of back tires and smaller front wheels, which make it easier to mow over bumpy lawns.
 - The conveniently positioned headlights on the unit make it convenient for users to mow before sunrise or after sundown.
 - This feature ensures that your lawn will always look how you intended for it to appear throughout the season.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Low maintenance costs
 - Induction technology allows users to achieve more consistent cuts overall patches
 - It features a deck wash port for more convenient cleaning
 - Relatively comfortable
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - Only comes in a bright orange finish
-[/su_list][/su_box][/su_column] [/su_row]
+
 Related:
 [Best Riding Lawn Mower for 2 Acres 2025](https://pestpolicy.com/best-riding-lawn-mower-for-2-acres/)
 ### [5. Ariens IKON-X 52″ Zero Turn Mower 23hp Kawasaki FR691 Series](https://www.amazon.com/dp/B00ZU1Z2W0/?tag=p-policy-20)
@@ -92,14 +96,15 @@ The unit is powered by a 23HP V-Twin engine made out of commercial-grade materia
 An automatic release compression guarantees a smooth start while an internally curved carburetor ensures improved fuel management.
 Three different blades make up the deck of this Ariens series. 52 inches of 11-gauge steel ensure that the user gets an excellent cut every single time.
 A dial installed onboard allows the mower to adjust to the ideal height. The height positions can be adjusted from among 13 height positions ranging from 1.5 inches to 4.5 allowing a customizable cut.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - The unit features a comfortable seat complete with standard-issue armrests
 - It can navigate through all terrains
 - Highly durable compared to other tractor mowers in its class
 - It is highly reliable
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - Relatively expensive to maintain
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [6. Poulan Pro 22HP PP22VA48 Light Garden Tractor](https://www.amazon.com/dp/B00ZU1Z2W0/?tag=p-policy-20)
 This tractor mower model is a relatively cheap, light, and quality mower. With a 10-year warranty, this 54” reinforced mowing deck offers one of the best values at the current market price.
 Although it falls short in terms of horsepower and a smaller gas tank as compared to other mowers in its class, this model makes up for its shortfalls through a cheaper price, quality, and durability.
@@ -107,14 +112,15 @@ Although it falls short in terms of horsepower and a smaller gas tank as compare
 The tool is powered by a Kohler engine which generates 22hp of power during the cutting time at a top speed of 7.5mph.
 - It comes equipped with front-mounted headlights if you’re a mower that fancies cutting your lawn before sunrise or after dark.
 A 16-inch turn radius cutter delivers just what most homeowners need in a powerful ride-on mower. The model’s 48” wheelbase ensures stability for the user.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - It offers great value for its relatively inexpensive price
 - Highly durable (10-year warranty)
 - It has a reverse mow capability
 - Well-muscled for a light riding mower tractor
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - It has a relatively small fuel tank
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [7. Husqvarna LGT2654 26 HP Hydro Light Garden Tractor](https://www.amazon.com/dp/B00K6RPL38/?tag=p-policy-20)
 Model LGT2654 is a yard workhouse that is worth every dollar that features a 26 horse power Kohler V-Twin engine.
 Husqvarna promises to get all the dirty job done given its large cutting width (54”) if you have a fairly flat lawn.
@@ -122,15 +128,16 @@ Other features that make this tractor mower one of the most popular in the marke
 Buying this model gives you access to the Husqvarna range of gardening equipment which means you can get access to any related implements for your various needs.
 It falls in the light garden tractor category, weighing about 550lbs with a wheelbase of 48 inches. Its top speed is 7.75 mph featuring a hydrostatic transmission.
 With a warranty of 3 years, this Kohler engine-powered tool is guaranteed to serve your needs in the long term.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - It has a massive cutting width
 - Features an electric blade engagement
 - It has a huge massive width for its size
 - It has a cruise control function
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - Not suitable for steep gradients
 - It is not as durable as other larger tractor mowers in its class.
-[/su_list][/su_box][/su_column] [/su_row]
+
 ## Considerations for Best Riding Lawn Mower for Tall Grass
 Ride-on mowers present the perfect solution for tackling large or
 [for small yards](https://pestpolicy.com/best-riding-lawn-mower-for-small-yard/)

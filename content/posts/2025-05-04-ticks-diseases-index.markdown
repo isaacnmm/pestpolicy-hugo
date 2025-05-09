@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Ticks Diseases Index
 date: '2025-05-04T03:21:05+00:00'

@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Are Soundbars Worth It? - 7 Key Tips
 date: '2025-05-04T10:23:27+00:00'

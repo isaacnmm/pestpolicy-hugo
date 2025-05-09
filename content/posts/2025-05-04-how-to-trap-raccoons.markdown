@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How to Trap Raccoons (With Live Traps)
 date: '2025-05-04T18:43:28+00:00'

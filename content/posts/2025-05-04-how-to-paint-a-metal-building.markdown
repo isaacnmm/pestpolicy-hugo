@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How to Paint a Metal Building
 date: '2025-05-04T06:27:08+00:00'

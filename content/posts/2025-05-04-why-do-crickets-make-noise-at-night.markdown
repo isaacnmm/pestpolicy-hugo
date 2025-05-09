@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Why Do Crickets Make Noise at Night?
 date: '2025-05-04T04:57:53+00:00'

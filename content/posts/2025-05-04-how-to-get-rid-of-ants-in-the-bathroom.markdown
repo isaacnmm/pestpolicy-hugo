@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How to Get Rid Of Ants in the Bathroom
 date: '2025-05-04T14:25:14+00:00'

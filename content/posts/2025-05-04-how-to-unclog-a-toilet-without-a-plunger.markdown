@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How to Unclog a Toilet without a Plunger
 date: '2025-05-04T18:40:51+00:00'
@@ -75,7 +75,7 @@ Once you are sure the blockage has been broken down, retrieve the wire hanger an
 **Step 4 - Test Flush**
 Once you remove your hanger, you can flush the toilet to ascertain that the clog is cleared. If the method was effective, the water should flush and drain quickly.
 If not, you can repeat the process, and if the problem persists, you can try out any other method as described here before calling a plumber.
-[su_youtube url="https://www.youtube.com/watch?v=EsG4LSwpuEM"]
+
 ## **Method 4: **** Use a drain snake to breaking up the clog **
 *Requirements: Drain snake, Gloves, and Trash bin. *
 A

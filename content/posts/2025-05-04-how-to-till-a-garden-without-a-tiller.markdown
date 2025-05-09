@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How to Till a Garden without a Tiller
 date: '2025-05-04T03:43:47+00:00'

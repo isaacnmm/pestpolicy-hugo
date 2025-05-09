@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How To Paint A Ceiling Without Roller Marks
 date: '2025-05-04T21:56:58+00:00'

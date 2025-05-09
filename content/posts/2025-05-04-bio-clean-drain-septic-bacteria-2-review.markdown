@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Bio-clean Drain Septic Bacteria 2 Review
 date: '2025-05-04T16:23:18+00:00'
@@ -24,7 +24,7 @@ is a bacteria/ enzyme formula that is eco-friendly. Luckily, it’ll tear down t
 Therefore, compared to other
 [drain cleaners that are either highly basic or highly acidic](https://pestpolicy.com/is-drain-cleaner-an-acid-or-base/)
 , thus harming your piping system, this Bio-clean Drain cleaner has only enzymes and natural bacteria that’ll break down the organic matter (the drain clog) that’s blocking the plumbing system.
-[su_youtube url="https://youtu.be/mKN_QFLDzLQ"]
+
 ### Safe and Ease of application
 You’ll require a single teaspoonful of the
 [drain cleaner and dump it into the clogged](https://pestpolicy.com/dont-use-vinegar-and-baking-soda-to-clean-clogged-drains/)

@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: 7 Best Shoes for Surgical Techs 2025 Reviewed
 date: '2025-05-04T11:20:25+00:00'
@@ -20,31 +20,7 @@ Related:
 ## Review: 7 Best Shoes for Surgical Techs
 ### [1. Merrell Men's Encore Gust Slip-On Shoe](https://www.amazon.com/dp/B003JJAU86/tag=p-policy-20)
 Merrell Men's Encore Gust Slip-On takes the first position for the Best Shoes for Surgical Techs. This slip-on walking shoe delivers unmatched comfort allowing Surgical Techs to perform their OR duties to the best of their abilities.
-[](https://www.amazon.com/dp/B003JJAU86/tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCVMN4M/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B077Z99PQD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07TB5KSR7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MHP7QWF/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07Q3L258K/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07XD777BM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07VVRRRBG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07DYG7C3V/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788Y2QQH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The slip-on design adds convenience when it comes to wearing or removing. The upper has Full-grain leather for a longer wear period. The upper also features a breathable mesh lining that helps in wicking moisture away for fresh and dry feet.
 
 Furthermore, Merrell Encore Gust has a shock-absorbing midsole that protects the wearer's foot from hard impact. It also has a molded EVA foot frame that provides extra stability and comfort. The Aegis antimicrobial treatment inhibits odors
@@ -52,44 +28,21 @@ Furthermore, Merrell Encore Gust has a shock-absorbing midsole that protects the
 In addition, these surgical tech shoes have a removable ortholite footbed that provides extra cushioning and support. You can also replace the ortholite insoles with custom-made orthotics if you’re in need of extra comfort and support.
 
 Besides that, the shoe also has a molded nylon arch shank that provides extra support. The air cushion on the heel section provides additional shock absorption for extra stability and comfort. The collar has good padding for additional cushioning.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Lightweight
 - Highly comfortable
 - It’s supportive and ideal for all-day wear
 - Easy to clean and maintain
 - Delivers excellent shock absorption
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Has limited color options
-[/su_list][/su_box][/su_column] [/su_row]
+
 Also Read:
 [Best Shoes for Supination and Plantar Fasciitis](https://pestpolicy.com/best-shoes-for-supination-and-plantar-fasciitis/)
 ### [2. Brooks Ghost 12](https://www.amazon.com/dp/B07QS8H3SP/tag=p-policy-20)
 Brooks Ghost 12 is one of the best athletic shoes for surgical techs. It’s lightweight, comfortable, well-cushioned, and supportive. It comes with features and technologies that support being on feet for long hours.
-[](https://www.amazon.com/dp/B07QS8H3SP/tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCVMN4M/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B077Z99PQD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07TB5KSR7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MHP7QWF/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07Q3L258K/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07XD777BM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07VVRRRBG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07DYG7C3V/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788Y2QQH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The outsole of Brooks Ghost 12 features a blown rubber compound that protects the sole from abrasion. It's thick, hence, doesn’t wear off quickly. The outsole also provides reliable traction. Therefore, you don’t need to worry even when the hospital surface is wet.
 
 At the bottom of the sole, around the forefoot area, there are flex grooves that enhance the shoe’s overall flexibility.
@@ -101,45 +54,22 @@ Furthermore, the shoe has a segmented crash pad that encourages the natural move
 The upper of Ghost 12 features an engineered mesh fabric. This fabric provides a sock-like fit and it has holes that allow the circulation of the air inside the shoe for a cool and dry wear experience. The upper also a 3D Fit Print design that works to reinforce the structure of the shoe for a proper customized fit.
 
 In addition, the Ghost 12 has a padded collar and tongue that cushion and protects the ankle and the Achilles tendon. Hence, they some of the best shoes for the Achilles tendon.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Comfortable
 - Proper heel lock
 - Reliable traction
 - Durable
 - Well-cushioned
 - Ideal for all daywear
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - You might size up if you have wide feet
-[/su_list][/su_box][/su_column] [/su_row]
+
 Also Read:
 [Best Running Shoes for Posterior Tibial Tendonitis](https://pestpolicy.com/best-running-shoes-for-posterior-tibial-tendonitis/)
 ### 3.[Merrell Men's Jungle Leather Slip-On Shoe](https://www.amazon.com/dp/B006PFQXUU/tag=p-policy-20)
 Merrell Men's Jungle Leather Slip-On is another incredible operating room shoe. Surgical techs and other medical personnel will greatly benefit from wearing this shoe. It’s lightweight, comfortable, and cushioned.
-[](https://www.amazon.com/dp/B006PFQXUU/tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCVMN4M/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B077Z99PQD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07TB5KSR7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MHP7QWF/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07Q3L258K/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07XD777BM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07VVRRRBG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07DYG7C3V/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788Y2QQH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The upper of Merrell Jungle features a full-grain Leather material that provides stability and a longer wear period. The heel section features a Merrell air cushion that helps to absorb shock while ensuring additional stability.
 
 Besides that, the midsole of the Merrell Jungle slip-on boasts of air cushion that delivers shock absorption and extra support to your underfoot.
@@ -149,45 +79,22 @@ This shoe is also one of the best shoes for male surgeons. It has molded EVA foo
 On top of that, the side gore panels make wearing or removing this shoe easier. The outsole features MSelect Grip sole that’s slip-resistant and delivers reliable traction even on wet hospital floors.
 
 Furthermore, the Merrell Jungle surgical tech shoes come with removable insoles. You can easily replace these insoles with custom-made orthotics if you’re in need of extra comfort or support.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Slip-on design makes putting on/off easy
 - Comfortable
 - Durable
 - Cushioned
 - Resist odor and sweat
 - Provides reliable traction
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - You might need to break in on them
-[/su_list][/su_box][/su_column] [/su_row]
+
 Also Read:
 [Best Men’s Dress Shoes for Standing All Day](https://pestpolicy.com/best-mens-dress-shoes-for-standing-all-day/)
 ### 4.[Skechers for Work Men's Flex Advantage](https://www.amazon.com/dp/B00NQY1OKM/tag=p-policy-20)– Best OR shoes for Men
 Skechers for Work Flex Advantage is an excellent shoe for surgical techs. It boasts stability, cushioning, comfort, and support. It comes in various width options to accommodate all surgeons or workers irrespective of your foot type.
-[](https://www.amazon.com/dp/B00NQY1OKM/tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCVMN4M/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B077Z99PQD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07TB5KSR7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MHP7QWF/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07Q3L258K/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07XD777BM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07VVRRRBG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07DYG7C3V/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788Y2QQH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The Flex Advantage is a slip-on shoe for surgeons and it’s highly convenient in terms of putting it on/off. The upper features a mesh fabric that allows the entry of air into the shoe.
 
 Besides that, the soft fabric lining in the interior and the padded collar provide unmatched comfort. the Elastic side gores deliver additional comfort. the shoe also has a wide toe area providing enough room for toes to wiggle.
@@ -195,42 +102,19 @@ Besides that, the soft fabric lining in the interior and the padded collar provi
 will appreciate the construction and design of this shoe.
 
 The outsole features a slip-resistant compound that provides reliable grip and traction. Thus, it ensures you remain sure-footed and walk with confidence. This surgical tech shoe also features a Memory foam insole that provides excellent cushioning.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Good cushioning
 - Slip-resistant
 - Comfortable
 - Reliable traction
 - Breathable
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Some customers complained of quality issues
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### **5. Dansko Women’s Professional Clog**
 The Dansko professional clogs are also some of the best shoes for surgical techs and best surgical clogs. They provide reliable support, comfort, and flexibility. They allow you to endure long hours of standing without feeling fatigued.
-[](https://www.amazon.com/dp/B0017KUQ2Y/tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCVMN4M/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B077Z99PQD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07TB5KSR7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MHP7QWF/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07Q3L258K/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07XD777BM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07VVRRRBG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07DYG7C3V/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788Y2QQH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 These operating room shoes have a spacious interior and toe box. The padding in the interior gives the wearer that comfortable and smooth feeling. The toe box construction offers protection against sharp objects or dangerous fluids.
 
 Most people in the medical field prefer This Professional Mule from Dansko. Hence, it’s one of the best shoes for doctors and surgeons.
@@ -242,45 +126,22 @@ These female shoes for surgical techs provide proper arch support. They have ext
 The mule also features a removable footbed that incorporates memory foam to provide extra comfort and support. You can also replace the footbed with custom orthotics for additional comfort.
 
 The upper adapts to the natural shape of the wearer’s foot. The toe box is wide enough to allow room for wiggling.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Excellent Arch Support for unmatched comfort
 - Excellent shock absorption
 - Breathable
 - Roomy
 - Comfortable
 - Provides excellent cushioning
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - You may need to break in on them
-[/su_list][/su_box][/su_column] [/su_row]
+
 Also Read:
 [Best Shoes for Supination and Plantar Fasciitis](https://pestpolicy.com/best-shoes-for-supination-and-plantar-fasciitis/)
 ### [6. Nike Women's Tanjun Running Shoes](https://www.amazon.com/dp/B07BQY73D7/tag=p-policy-20)
 If you’re looking for the most affordable, comfortable, and lightweight shoes pick the Nike Tanjun. These sneakers are some of the Best shoes for surgical techs. They are simple yet stylish; hence, you can wear them for long hours without getting fatigued.
-[](https://www.amazon.com/dp/B07BQY73D7/tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCVMN4M/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B077Z99PQD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07TB5KSR7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MHP7QWF/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07Q3L258K/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07XD777BM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07VVRRRBG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07DYG7C3V/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788Y2QQH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The Nike Tanjun sneakers feature a lace-up closure design that delivers a secured fit. The Dual Ride System footbed provides underfoot comfort throughout the day.
 
 Besides that, the shoe has a Phylon traction outsole that provides a reliable grip. The forefoot and heel sections have flex grooves that deliver additional grip on surfaces.
@@ -288,7 +149,7 @@ Besides that, the shoe has a Phylon traction outsole that provides a reliable gr
 The textile lining on the interior is smooth hence, adds comfort and protection to the foot. The interior has enough ventilation so you don’t need to worry about hot weather months.
 
 The padding on the collar and tongue adds to comfort. Thus, you can wear these surgeon athletic shoes without socks and still be comfortable throughout the day. You can also remove the insole and replace it with a custom-made one for extra comfort or support.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Lightweight
 - Highly comfortable
 - Well ventilated
@@ -297,36 +158,13 @@ The padding on the collar and tongue adds to comfort. Thus, you can wear these s
 - Appealing
 - Good cushioning
 - Roomy ideal for[people with wide feet](https://pestpolicy.com/best-running-shoes-for-men-with-wide-feet/)
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - The shoes are not as durable as most reviewers expected
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [7. Alegria Women's Paloma Flat](https://www.amazon.com/dp/B01GU2W4C8/tag=p-policy-20)
 Alegria Paloma Flat is one of the best dress shoes for women surgical techs. This shoe has a timeless design and is ideal for any occasion. It’s an easy fit and comes with various color options with unique ornamentation.
-[](https://www.amazon.com/dp/B01GU2W4C8/tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCVMN4M/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B077Z99PQD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07TB5KSR7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MHP7QWF/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07Q3L258K/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07XD777BM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07VVRRRBG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07DYG7C3V/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788Y2QQH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The upper of this Alegria Paloma Flat features a durable leather upper. The inner section has an ultra-soft leather lining that has excellent moisture-wicking abilities that help maintain a healthy and clean in-shoe environment.
 
 Besides that, the hook-and-loop design with the stylish button addition delivers a more secure fit. The shoe also provides enough arch support. The heel bumper provides additional comfort and support.
@@ -336,15 +174,16 @@ Furthermore, this
 features a removable footbed that incorporates memory foam, latex, and cork. The footbed conforms to the natural shape of the wearer’s foot. You can also replace the footbed with custom orthotics.
 
 In addition, the rocker outsole provides good traction on surfaces giving you the confidence you need to walk on those hospital surfaces. The outsole design also helps to reduce pressure and stress on joints and muscles.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Excellent arch support
 - Durable leather upper
 - Available in various color options
 - Highly comfortable
 - Allows use of orthotics
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - They run big, you might need to size lower
-[/su_list][/su_box][/su_column] [/su_row]
+
 ## Buyers Guide for Best Shoes for Surgical Techs
 **Comfort**
 When it comes to buying any type of shoe and in this case Best Shoes for Surgical Techs always lean on the comfort side. Surgical Techs spend most of their time at the OR where they remain standing doing their duties.

@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How to Remove Acrylic Paint from Canvas
 date: '2025-05-04T14:38:41+00:00'

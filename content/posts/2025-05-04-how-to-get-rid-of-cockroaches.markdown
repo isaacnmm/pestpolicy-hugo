@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How to Get Rid of Cockroaches - Kill Roaches
 date: '2025-05-04T20:19:38+00:00'
@@ -67,7 +67,7 @@ How to Use Boric Acid for Cockroaches
 - Clean all targeted areas, including cabinets, countertops, sinks, drawers, behind and under the refrigerator, and others
 - Lightly dust boric acid powder all over these areas. If dealing with a severe infestation, a heavy application may be necessary
 - Vacuum the remaining powder in the morning
-[su_youtube url="https://www.youtube.com/watch?v=1mNRDtCtzkA"]
+
 ### Step 4: Thoroughly clean house/ Vacuuming
 It’s not unlikely to find a few roaches in a clean home. As long as there are cracks on the walls and perfect hiding places, you’ll still deal with a few of them crawling around
 [since roaches don't fly](https://pestpolicy.com/can-cockroaches-fly/)

@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How To Remove Ants From Carpet [DIY Guide]
 date: '2025-05-04T22:38:41+00:00'

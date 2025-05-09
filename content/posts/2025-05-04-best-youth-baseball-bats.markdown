@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: 7 Best Youth Baseball Bats 2025 Reviewed
 date: '2025-05-04T23:33:38+00:00'

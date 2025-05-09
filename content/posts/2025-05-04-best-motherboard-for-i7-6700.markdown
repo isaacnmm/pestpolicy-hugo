@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: 7 Best Motherboard for i7 6700 2025 Reviewed
 date: '2025-05-04T23:31:44+00:00'

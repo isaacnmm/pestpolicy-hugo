@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Do Fleas Have Wings? 9 FAQs for Fleas
 date: '2025-05-04T08:08:36+00:00'
@@ -31,7 +31,7 @@ Fleas move quickly and it may seem like they fly. Most of their over 2,000 types
 **Fleas use their powerful and tiny legs to jump (about 8 inches vertically) or move between hairs of host animal. Fleas, besides froghoppers, have the highest jump-body size ratio. **
 ## Details: Do Fleas Have Wings? 9 FAQs for Fleas
 So, fleas have no wings. The suffix aptera in the order Siphonaptera (a Greek word) denotes that fleas are wingless while siphon is interpreted as siphon.
-[su_youtube url="https://www.youtube.com/watch?v=F0e0CEiGfOk&feature=youtu.be"]
+
 Most ectoparasites attacking mammals and birds - lice, bedbugs, ticks, and fleas -
 [can’t fly](https://pestpolicy.com/do-fleas-fly/)
 and lack functional wings. They use legs to walk around but, to move quickly or further, fleas use the powerful but tiny legs to jump.

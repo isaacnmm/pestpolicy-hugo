@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: 7 Best Lego Set For 11 Year Old Boy 2025
 date: '2025-05-04T05:20:53+00:00'
@@ -20,8 +20,6 @@ Hence, you can pick any Lego set from our list and gift your 11-year-old. All th
 The first product on our list for the Best Lego Set For 11 Year Old Boy is this amazing set called the LEGO Super Heroes Attack on Avengers Tower. It has 511 pieces and 5 Minifigures. The set also includes assorted accessories and a weapon. The 5 Minifigures include Ultron Mark 1, Iron man, 2 Iron Legions, and Thor.
 ![](/assets/img/03/Best-Lego-Set-For-11-Year-Old-Boy-300x200.jpg)
 Let's take a closer look at the role of each Minifigure. Let’s start off with the all-powerful Ultron Mark 1 who’s depicted as a villain. He has excellent printing all over his body. Your son will definitely love this figure. He seems exclusive to this set.
-
- 
 
 Next up are the 2 iron Legions. These ones are identical. They have nice printing on their bodies to bring more excitement to the play. Thor is also an exciting Minifigure with excellent printing.
 

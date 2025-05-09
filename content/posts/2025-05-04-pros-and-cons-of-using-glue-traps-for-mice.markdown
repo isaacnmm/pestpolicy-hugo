@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Pros and Cons of Using Glue Traps for Mice
 date: '2025-05-04T15:36:01+00:00'

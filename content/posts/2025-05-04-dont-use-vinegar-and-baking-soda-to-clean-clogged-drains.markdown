@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Dont Use Vinegar and Baking Soda to Clean Clogged Drains
 date: '2025-05-04T06:40:05+00:00'
@@ -24,7 +24,7 @@ With the vinegar plus Baking soda, its mix will create just
 : Instead of using the mix of the two greening ingredients, use the
 [baking soda](https://pestpolicy.com/does-baking-soda-kill-fleas/)
 like your scouring agent in cleaning bathrooms or the sinks. On the other hand, use vinegar for neutralizing any odor or like a scum busting.
-[su_youtube url="https://youtu.be/_0wjFo7Yhmc"]
+
 ## Avoid Vinegar plus Baking Soda
 When used separately,
 [vinegar and baking soda are excellent home](https://pestpolicy.com/does-vinegar-kill-bed-bugs/)

@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How Many Box Jumps Should I Do?
 date: '2025-05-04T05:58:21+00:00'

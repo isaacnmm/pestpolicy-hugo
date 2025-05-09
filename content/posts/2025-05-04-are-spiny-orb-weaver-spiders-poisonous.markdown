@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Are Spiny Orb-Weaver Spiders Poisonous?
 date: '2025-05-04T20:04:37+00:00'
@@ -20,7 +20,7 @@ The female Gasteracantha have brightly-colored spines on their shell-like, harde
 Spiny Orb-Weaver Spiders measure about 1/4" - 1/2", have 8 legs and are yellow, orange, black, or white in color with red markings. If you notice the colorful spiders and some large spun webs, then it may be a sure sign that your yard has been infested by spiny orb-weaver.
 The spiny orb-weaver will mainly make their nests on shrubs, citrus trees, or around the sides of your house. In addition, these insects will mainly be active from October to January where they'll produce oval egg sacs under man-made structures and tree leaves too - interestingly they do this next to the webs by their females counterparts.
 Each eggs sack of this Spiny Orb-Weaver Spiders will hold roughly 100 - 300 eggs, and thus its presence will definitely signify a massive infestation in your yard. Sadly, the eggs will hatch within 2 weeks and hence you must control the bugs before the begin their hatching and reproduction.
-[su_youtube url="https://www.youtube.com/watch?v=sOY4TdcTwyI"]
+
 ## How to identify the Spiny Orb-Weaver
 The bug's body color is the surest way to distinguish between the spiny-back species - particularly in this case the orb-weaver spiders.
 The male orb-weaver spiders are largely smaller compared to their female counterparts - their body length ranges from 2 - 3 millimeters but slightly longer in body width. On the other hand the female orb-weaver spiders measure 5 - 9 millimeters in body length and their body width is 10 - 13 millimeters.
@@ -50,7 +50,7 @@ As noted earlier, you'll mainly find these Spiny Orb-Weaver Spiders in residenti
 ## Controlling Spiny Orb-Weaver Spiders
 Since the spiders mainly feed on insects, it makes sense to reduce the amount of light that's particularly outside your house - this will keep the spiders away plus also discourage their small insects from coming near your yard and house too.
 Therefore, I suggest you change the exterior lights and install 'bug lights' that are particularity yellow in color as this will reduce the amount of light and hence the number of small insects that'll be flying near your yard or house in the evenings and at night.
-[su_youtube url="https://www.youtube.com/watch?v=JW7tLXeIv3M"]
+
 Further, ensure that you clean and clear all the webs that are around the house as this will discourage the spiders from creating their webs. You might require to undertake more aggressive bugs control measure if you're having a massive Spiny Orb-Weaver Spiders  infestation - this may include finding the eggs sacs and bug webs.
 For this, I would recommend using ‘de-webbing’ substances - particularly those that are organic as these will help prevent the spider webs from easily attaching on the house or bushes around the yard or lawn. This ensure that the spiders won't get a habitat from where they'd hatch a re-infestation in your residence.
 However, on the extreme case of infestation by the Spiny Orb-Weaver Spiders, simply hire the services of a professional exterminator to control the bugs. Such services might be costly but its definitely worth it as it immidietly takes the burden off your shoulders.

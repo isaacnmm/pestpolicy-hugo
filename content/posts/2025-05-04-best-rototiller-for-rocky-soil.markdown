@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: 9 Best Rototiller for Rocky Soil 2025
 date: '2025-05-04T20:37:20+00:00'
@@ -18,25 +18,7 @@ We carefully researched and came up with a list of rototillers and their feature
 ## Rototillers: 9 Best Rototiller for Rocky Soil 2025
 ### [1. Sun Joe TJ603E 16-Inch 12-Amp Electric Tiller and Cultivator](https://www.amazon.com/dp/B00V6IEVXM/?tag=p-policy-20)
 The electric tiller has a superstructure with dimensions of 55x43x17inches and weigh only 27.1 pounds. Its foldable handles make it compact for secure storage.
-[](https://www.amazon.com/dp/B00V6IEVXM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004JMZH2G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00602J4MM?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01DYB9KRK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004H4X6Z6/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=aeeeec761ac9e561e0e646e30ca67642)
-[](https://www.amazon.com/dp/B01MYPL2XZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01MSOXMDY/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079CYGP6W/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00OAVXPAM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B074KKY9CG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00D3KJN3O/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B002ZVOLXE/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00ZU1Z2W0/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00RGNW8PO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079KBNTSM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MOT0FNW/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=a9243263f92415d854e1676b7e6ab6ee)
-[](https://www.amazon.com/dp/B00F6EV306/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
 Sun Joe TJ603E instant start tiller comes with 12amp motor with 340 RPM making it easy to start and operate. Its six durable steel angled tines pulverize dirt by slicing through hard soil effortlessly. With such power, tilling a large yard is a child's play for the cultivator.
 The working width of 16 inches gives this monster the power to till a large surface in a single pass. Further, the tines are adapted to work on different types of soil, making rocky soil their favorite playground.
@@ -44,38 +26,21 @@ This cultivator is one of a kind when it comes to digging depth. Its 8 inches cu
 [best tiller for raised beds](https://pestpolicy.com/best-tiller-for-raised-beds/)
 .
 The tiller is ideal for use on tough yards as its robust tines will dig through any ground. Its small size makes it easy to use in tiny spaces. Cleaning this tiller is a breeze; all you need is a soapy piece of clothing to remove the dirt. Also, you need a stiff brush to clear trash that the soapy clothing article fail to remove.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Ecofriendly
 - Powerful motor
 - Study tines
 - Foldable for easy storage
 - Wheel adjustment mechanism
 - Two-year warranty
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - Expensive
-[/su_list][/su_box][/su_column] [/su_row]
+
 https://www.youtube.com/watch?v=kNdh8VC-DCI
 ### [2. Greenworks 10-Inch 8 Amp Corded Tiller 27072](https://www.amazon.com/dp/B00D3KJN3O/?tag=p-policy-20)
 The corded tiller comes with a sturdy structure measuring 33x15x15 inches and weighing 29.3 pounds. Since it's foldable, it becomes compact hence occupying a smaller space.
-[](https://www.amazon.com/dp/B00D3KJN3O/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004JMZH2G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00602J4MM?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01DYB9KRK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004H4X6Z6/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=aeeeec761ac9e561e0e646e30ca67642)
-[](https://www.amazon.com/dp/B01MYPL2XZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01MSOXMDY/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079CYGP6W/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00OAVXPAM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B074KKY9CG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00D3KJN3O/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B002ZVOLXE/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00ZU1Z2W0/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00RGNW8PO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079KBNTSM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MOT0FNW/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=a9243263f92415d854e1676b7e6ab6ee)
-[](https://www.amazon.com/dp/B00F6EV306/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
 The powerful 8Amp electric motor tiller is perfect for rocky grounds. It comes with 8-inch forward rotating tines making it sturdy and efficient in its operation.
 Its superb adjustable tilling width mechanism enables you to change the tilling width from 8.25 inches to 10 inches. As a result, you will comfortably dig through any soil within a short time.
@@ -84,104 +49,53 @@ Green work corded tiller has an adjustable tilling depth of up to 5 inches. The 
 .
 The tiller is ideal for use in tight spots with stones as its tines are adapted to work well on rocky soil. Foldable handles make it compact. As a result, it occupies a small storage space.
 Maintaining the tiller is easy as it is electricity-powered, meaning you are safe from regular oil and spark plug change.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - 8 AMP reliable motor
 - Eight forward rotating tines
 - Adjustable tilling depth
 - Foldable
 - Eco-friendly
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - Light
-[/su_list][/su_box][/su_column] [/su_row]
+
 https://www.youtube.com/watch?v=GUVyO7eEWZs
 ### [3. Earthquake 20015 Versa FTT Rototiller](https://www.amazon.com/dp/B01AS01FQE/?tag=p-policy-20)
 The front tine tiller has an excellent structure measuring 51.2x35x24 inches. It weighs a paltry 85 pounds making it easy to operate. Its foldability makes it compact for secure storage.
-[](https://www.amazon.com/dp/B01AS01FQE/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004JMZH2G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00602J4MM?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01DYB9KRK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004H4X6Z6/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=aeeeec761ac9e561e0e646e30ca67642)
-[](https://www.amazon.com/dp/B01MYPL2XZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01MSOXMDY/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079CYGP6W/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00OAVXPAM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B074KKY9CG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00D3KJN3O/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B002ZVOLXE/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00ZU1Z2W0/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00RGNW8PO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079KBNTSM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MOT0FNW/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=a9243263f92415d854e1676b7e6ab6ee)
-[](https://www.amazon.com/dp/B00F6EV306/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
 The tilling beast is very stable and easy to use. It comes with a powerful 99cc Viper 4-cycle engine that is capable of tearing into any soil type effortlessly. The robust tines allow it to till even in rocky yards without breaking.
 Earthquake 20015 brings an adjustable working width of 11, 16, or 21 inches depending on the soil condition of your yard. Therefore, you can increase or reduce the width to get out of the way of rocks.
 With this tiller, you have the luxury of adjusting tilling depth up to 11inches depending on the type of soil or the kind of seedbed you are preparing.
 The tiller is ideal for use in areas with rocky soil courtesy of its adjustable width mechanism as it allows you to move away from obstructions. You will also work well in tight spaces since the tiller has a small structure.
 Cleaning and maintaining this tiller is a breeze. All you need is spray it with a water hose and remove the extra dirt using a soapy piece of clothing. Its five-year warranty covers any repairs within the warranty period.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Powerful engine
 - Powerful blades
 - Easy to replace tines
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - Light –buckling easily
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [4. Earthwise TC70001 11-Inch 8.5-Amp Corded Electric Tiller](https://www.amazon.com/dp/B004H4X6Z6/?tag=p-policy-20)
 Earthwise TC70001 structure of hard and durable materials is ideal for use on tough and rocky grounds. It's also easy to use and operate courtesy of its simple startup mechanism.
-[](https://www.amazon.com/dp/B004H4X6Z6/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004JMZH2G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00602J4MM?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01DYB9KRK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004H4X6Z6/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=aeeeec761ac9e561e0e646e30ca67642)
-[](https://www.amazon.com/dp/B01MYPL2XZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01MSOXMDY/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079CYGP6W/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00OAVXPAM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B074KKY9CG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00D3KJN3O/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B002ZVOLXE/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00ZU1Z2W0/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00RGNW8PO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079KBNTSM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MOT0FNW/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=a9243263f92415d854e1676b7e6ab6ee)
-[](https://www.amazon.com/dp/B00F6EV306/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
 The tiller comes with a start single lever switch that is easy to start and operate. Its soft ergonomic grip gives it a comfortable feel for smooth operations. The cultivator comes with a powerful 8.5 amp motor and also offers higher runtime. With four durable tines, this cultivator digs through any soil without being damaged.
 The working width 11 inches gives this a large tilling surface, which makes it easy to till a large yard in a short time. The sharp tines mince any soil to tiny particles making it ready for planting.
 The tiller comes with an 8 inches cutting depth mechanism that allows for tilling to a maximum depth of 8 inches. Therefore, you can prepare the seedbed for any seed type comfortably with the tiller.
 The tiller is ideal for use in tiny spaces as it is compact. The tiller's lightweight and small design makes it easy to operate and store.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Strong tines
 - Durable
 - Easy to use
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - Expensive
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [5. Scotts Outdoor Tools TC70135S 13.5-Amp 16-Inch Tiller](https://www.amazon.com/dp/B07JVKYC87/?tag=p-policy-20)
 The corded electric tiller's structure of dimensions 40x16x40 inches and the paltry 30 pounds weight make it light and easy to store due to its foldability.
-[](https://www.amazon.com/dp/B07JVKYC87/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004JMZH2G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00602J4MM?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01DYB9KRK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004H4X6Z6/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=aeeeec761ac9e561e0e646e30ca67642)
-[](https://www.amazon.com/dp/B01MYPL2XZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01MSOXMDY/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079CYGP6W/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00OAVXPAM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B074KKY9CG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00D3KJN3O/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B002ZVOLXE/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00ZU1Z2W0/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00RGNW8PO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079KBNTSM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MOT0FNW/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=a9243263f92415d854e1676b7e6ab6ee)
-[](https://www.amazon.com/dp/B00F6EV306/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
 The tiller's 13 amp motor makes it sturdy enough to till any ground comfortably. Its six tempered steel alloy tines are strong and durable. As a result, they can survive the harshest rocky terrain while tilling.
 The tiller comes with an adjustable cutting width starting from 11 to 16 inches. As a result, you can comfortably move away from the obstruction path with this tiller.
@@ -189,71 +103,37 @@ With an 8 inch tilling depth, the tiller can be used to turn hard soils and is s
 [best tiller for breaking new ground](https://pestpolicy.com/best-tiller-for-breaking-new-ground/)
 . Therefore, you can use it to mix fertilizer and manure as you till your land.
 Since it's easy to use and operate, you will stay comfortable while tilling your rocky yard without any problem. You may be required to change something from time to time to keep the tiller in tip-top condition. Lucky for you, it is easy for you to get spares online for this tiller.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Ecofriendly
 - Powerful
 - Sturdy tines
 - Ideal for tight spaces
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - Expensive
-[/su_list][/su_box][/su_column] [/su_row]
+
 Related:
 [Best Tiller for Subcompact Tractor](https://pestpolicy.com/best-tiller-for-subcompact-tractor/)
 ### [6. Earthquake 33cc Cultivator 31635 MC33-Mini (Viper Engine 2-cycle)](https://www.amazon.com/dp/B07PJ19Q5N/?tag=p-policy-20)
 Earthquake 31635 is a gas-powered heavy-duty tiller with a structure measuring 29.5x15.2x12.3inches. It weighs 32 pounds and is foldable. As a result, it takes a tiny space to store it.
-[](https://www.amazon.com/dp/B07PJ19Q5N/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004JMZH2G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00602J4MM?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01DYB9KRK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004H4X6Z6/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=aeeeec761ac9e561e0e646e30ca67642)
-[](https://www.amazon.com/dp/B01MYPL2XZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01MSOXMDY/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079CYGP6W/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00OAVXPAM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B074KKY9CG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00D3KJN3O/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B002ZVOLXE/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00ZU1Z2W0/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00RGNW8PO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079KBNTSM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MOT0FNW/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=a9243263f92415d854e1676b7e6ab6ee)
-[](https://www.amazon.com/dp/B00F6EV306/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
 The tiller comes with a 3 HP, 52cc, and two strokes single-cylinder motor. This motor powers through any soil, including the rocky and sandy soil. With 7000 RPMs tines rotation, four steel replaceable and adjustable forward rotating tines make tilling a large yard child's play.
 The tiller comes with11 inches working width for power and efficiency in tilling hard virgin grounds. The large tilling deck covers a large surface in a single pass.
 You can set the cultivator to the cutting depth of your desire. Its depth adjustment mechanism ranging from 3.9 to 5.9 inches, gives you comfort and convenience while at the same time providing support.
 The tiller is ideal for use on rocky grounds or yards with stones thanks to its robust, sharp tines. It's easy to start and operate this tiller making it suitable for any user so long as they understand the user manual.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Versatile for wedding, mixing, and aeration
 - Powerful
 - Easy to handle
 - Convenient wheels
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - Pollutes the environment
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [7. Schiller Grounds Care 7920 Mantis 2-Cycle Tiller Cultivator](https://www.amazon.com/dp/B00N6X9URC/?tag=p-policy-20)
 This excellent tiller comes with a structure measuring 48x17x38 inches. It also weighs a meagre 20 pounds making it easy to use and operate. The robust materials used in the manufacture of the tilling implement make it durable and long-lasting.
-[](https://www.amazon.com/dp/B00N6X9URC/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004JMZH2G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00602J4MM?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01DYB9KRK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B004H4X6Z6/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=aeeeec761ac9e561e0e646e30ca67642)
-[](https://www.amazon.com/dp/B01MYPL2XZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01MSOXMDY/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079CYGP6W/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00OAVXPAM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000E2EZ96/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B074KKY9CG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00D3KJN3O/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B002ZVOLXE/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00ZU1Z2W0/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00RGNW8PO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079KBNTSM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MOT0FNW/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=a9243263f92415d854e1676b7e6ab6ee)
-[](https://www.amazon.com/dp/B00F6EV306/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
 Schiller Grounds ergonomic speed control makes tilling easy as you can conveniently control its speed. It's also convenient to switch the tiller on and off. The two-cycle commercial engine is placed directly over the top of the tines for maximum tilling power and stability.
 With such power, you can comfortably break hard clay and new grounds thanks to its hard material that makes it long-lasting - check
@@ -261,15 +141,16 @@ With such power, you can comfortably break hard clay and new grounds thanks to i
 . The tillers 9-inch tilling width offers a large tilling surface.
 The patted serpentine tines ensure that the tilling tool works well without getting broken. The cultivator comes with a 10-inch working depth, making it suitable to cultivate any soil.
 The cultivator is ideal for use in rocky soil with obstacles like large stones. Cleaning this beast does not take much. You need a soapy piece of clothing and a stiff brush to clean the cultivator.
-[su_row] [su_column size="1/2"][su_box title="Pros" box_color="#32CD32" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - 10-inch tilling depth
 - 9-inch tilling width
 - Foldable for storage
 - Lightweight
 - Powerful tines
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" box_color="#FF4500" radius="0"][su_list icon="icon: ban" icon_color="#FF4500"]
+
+Cons:
 - Pollutes environment
-[/su_list][/su_box][/su_column] [/su_row]
+
 ## Considerations for Rocky Soil Rototillers
 ### 1. Power and Performance
 In strength, we look at the power of the motor concerning powering the cultivator. A large motor has higher Horsepower and larger engine size.

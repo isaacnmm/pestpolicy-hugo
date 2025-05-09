@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How to Make Old Paint Usable Again
 date: '2025-05-04T23:30:28+00:00'

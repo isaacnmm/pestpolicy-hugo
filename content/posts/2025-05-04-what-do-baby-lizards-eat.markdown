@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: What Do Baby Lizards Eat? 7 Lizard Diets
 date: '2025-05-04T04:06:11+00:00'

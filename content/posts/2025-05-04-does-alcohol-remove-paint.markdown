@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Does Alcohol Remove Paint?
 date: '2025-05-04T15:45:58+00:00'

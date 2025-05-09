@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: What Do Bearded Dragons Eat? 7 Tips
 date: '2025-05-04T13:17:40+00:00'

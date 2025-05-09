@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Steam Controller Review for 2025
 date: '2025-05-04T16:51:33+00:00'
@@ -28,8 +28,7 @@ Pros:
 Cons:
 - Buttons are small
 - Lacks total precision
-[/su_list][/su_box][/su_column]
-[/su_row]
+
 For most PC gamers, the
 **mouse**
 and

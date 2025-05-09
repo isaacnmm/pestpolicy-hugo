@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: What Do Sugar Ants Look Like?
 date: '2025-05-04T09:04:14+00:00'

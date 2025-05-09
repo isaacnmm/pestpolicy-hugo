@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Is it Halal to Eat Crickets?
 date: '2025-05-04T12:34:30+00:00'

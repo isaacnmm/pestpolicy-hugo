@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How Long Do Bed Bug Bites Last?
 date: '2025-05-04T23:35:42+00:00'

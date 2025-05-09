@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How Do you Silence a Cricket?
 date: '2025-05-04T02:06:42+00:00'

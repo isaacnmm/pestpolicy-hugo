@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Does Acetone Remove Paint?
 date: '2025-05-04T03:23:11+00:00'

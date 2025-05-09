@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How to Prep a Room for Paint
 date: '2025-05-04T20:58:19+00:00'

@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How to Paint Bathroom Cabinets
 date: '2025-05-04T03:51:35+00:00'

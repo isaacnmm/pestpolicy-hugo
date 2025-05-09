@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Where Do Spiders Go in the Winter?
 date: '2025-05-04T07:37:55+00:00'
@@ -26,7 +26,7 @@ Further, some of the baby spiders, after hatching, will hide in the egg sacs tha
 However, the spiders that'll be hiding under rock piles and leaf litter  won't be sleeping (
 [spiders don't sleep](https://pestpolicy.com/do-spiders-sleep/)
 ) but may be moving around searching for food.
-[su_youtube url="https://www.youtube.com/watch?v=SdFpyWfSFpE"]
+
 ### 1 Outdoor Spiders
 Sutdoor spiders  will live very comfortably in your outdoor spaces but won't easily survive the conditions in the indoors. E.g. North American spider can't survive the winter in the indoor shelters.
 

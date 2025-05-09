@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: 7 Best Running Shoes for IT Band Syndrome 2025
 date: '2025-05-04T13:09:51+00:00'
@@ -24,36 +24,7 @@ Also Read:
 ## Review: 7 Best Running Shoes for IT Band Syndrome
 ### [1. ASICS Gel-Kayano 26 Shoe for IT Band Syndrome](https://www.amazon.com/dp/B07TXW85NH/?tag=p-policy-20)
 ASICS Gel-Kayano 26 tops my list for Best Running Shoes for IT Band Syndrome. The shoe has excellent features and technologies that help combat various knee issues including ITBS. The shoe is lightweight, cushioned, and offers good shock absorption.
-[](https://www.amazon.com/dp/B07TXW85NH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KM9FBSS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0797D3GYP/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078C661YJ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07C6JB568/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B001EJMYQO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B018QS97IS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B077Z99PQD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07TB5KSR7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MHP7QWF/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07Q3L258K/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07XD777BM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07VVRRRBG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07DYG7C3V/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788Y2QQH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The rear and forefoot sections have a generous amount of Gel cushioning that provides reliable shock absorption that helps to control pain caused by IT Band Syndrome. Hence, you’re assured of a comfortable experience while undertaking long-distance runs.
 
 Another exceptional feature is the Impact Guidance System that works to improve the runner’s natural gait ensuring that they have smooth heel-toe transitions.
@@ -67,48 +38,20 @@ Featuring the FLYTEFOAM® Propel technology and jacquard mesh upper for a lightw
 Kayano 26 also features FlyteFoam Lyte Technology that delivers continuous cushioning for extra protection against injuries. The EVA sock liner provides additional cushioning and rebounds for a pleasant underfoot feeling. The Guidance TRUSSTIC provides extra foot stability.
 
 The outsole features a durable AHAR® rubber compound that provides protection against wear for a longer wear period. It also provides reliable traction on various surfaces.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Excellent cushioning
 - Highly comfortable
 - Excellent stability
 - Durable
 - Breathable upper
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Dull color schemes
 - Pricey
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [2. ALTRA Men's Torin 4 IT Band Running Shoe](https://www.amazon.com/dp/B07QD7N723/?tag=p-policy-20)
 Most runners are pleased with the ALTRA Men's Torin 4 adaptive upper fit and accommodating design. Runners with IT Band love the midsole for its reliable cushioning and its ability to adapt to the natural motion of the foot.
-[](https://www.amazon.com/dp/B07QD7N723/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KM9FBSS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0797D3GYP/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078C661YJ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07C6JB568/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B001EJMYQO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B018QS97IS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B077Z99PQD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07TB5KSR7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MHP7QWF/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07Q3L258K/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07XD777BM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07VVRRRBG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07DYG7C3V/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788Y2QQH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 Altra Torin 4 has a midsole that features the newly updated Quantic™ foam. This foam provides a responsive and plush feeling allowing the wearer clock long distances without straining. The foam provides the shoe with a lightweight profile, helping with seamless transitions throughout the gait cycle.
 
 The midsole also has a Natural Ride System (NRS) that helps to improve the natural shape, anatomical position, and motion of the foot for a smooth ride. The midsole unit also has a network of grooves that enhances flexibility around the joint and tendon areas ensuring improved performance.
@@ -118,50 +61,22 @@ The upper of Altra Torin 4 features an engineered mesh that allows entry of air 
 The Altra Torin 4 also has lightly padded collar and tongue, which provide reliable cushioning around the ankles and the Achilles tendon. Hence, they prevent accidental shoe removal for a more comfortable running experience.
 
 The shoe also features FootPod™ technology, which is an outsole technology that allows natural movement of the foot by enhancing the capacity of the tendons and joints to move naturally. The tread pattern beneath the outsole provides reliable grip on various surfaces.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Snug in-shoe experience
 - Highly versatile
 - Breathable upper
 - Excellent flexibility
 - Wide toe box
 - Supportive and stable
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Some people complained that the midfoot section was too tight
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [3. Brooks Men's Beast 18](https://www.amazon.com/dp/B077TD3DVC/?tag=p-policy-20)
 Brooks Men's Beast 18 is a road running shoe that’s ideal for runners with IT Band Syndrome. The shoe has excellent stability mechanisms, comfortable construction, reliable cushioning, and a roomy to box to accommodate
 [runners with wide feet](https://pestpolicy.com/best-running-shoes-for-men-with-wide-feet/)
 .
-[](https://www.amazon.com/dp/B077TD3DVC/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KM9FBSS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0797D3GYP/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078C661YJ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07C6JB568/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B001EJMYQO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B018QS97IS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B077Z99PQD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07TB5KSR7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MHP7QWF/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07Q3L258K/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07XD777BM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07VVRRRBG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07DYG7C3V/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788Y2QQH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The midsole of Beast 18 features a Super DNA foam that supports the foot during the running session. The DNA foam provides a softy and springy ride while also helping in shock absorption to protect the foot against injuries.
 
 Another excellent feature is the Caterpillar Crash Pad design that promotes smooth heel to toe transition. The midsole section also incorporates Omega Flex Grooves that provide flexibility for the natural movement of the foot.
@@ -175,7 +90,7 @@ The forefoot section is wide enough to accommodate wide footed runners and peopl
 . The upper part of the forefoot has an engineered mesh with visible pores that allow proper ventilation for a comfortable in-shoe environment.
 
 The outsole features a durable rubber outsole that provides reliable traction on varied surfaces. The heel section features HPR Plus, which is a rubber material that offers protection against abrasion. This rubber compound also provides traction and protects those areas that are susceptible to quick wear and tear.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Excellent underfoot cushioning
 - Excellent stability
 - Comfortable
@@ -184,41 +99,13 @@ The outsole features a durable rubber outsole that provides reliable traction on
 - Supportive
 - The best shoe for runners with plantar fasciitis
 - Roomy toe box
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Bland and uninteresting color schemes
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [4. New Balance Women's Fresh Foam 1080 V10 Running Shoe for IT Band](https://www.amazon.com/dp/B0815VDL9J/?tag=p-policy-20)
 New Balance Women's Fresh Foam 1080 V10 finds a spot in the best running shoes for IT Band Syndrome. A neutral running shoe that’s well-cushioned, lightweight, flexible, and supportive.
-[](https://www.amazon.com/dp/B0815VDL9J/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KM9FBSS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0797D3GYP/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078C661YJ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07C6JB568/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B001EJMYQO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B018QS97IS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B077Z99PQD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07TB5KSR7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MHP7QWF/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07Q3L258K/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07XD777BM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07VVRRRBG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07DYG7C3V/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788Y2QQH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The midsole of New Balance 1080 v10 utilizes Fresh Foam X for plush comfort. Fresh Foam X is a cushioning technology that delivers a soft yet responsive wear experience. It also offers superior energetic rebound for better performance.
 
 The ortholite sock liner provides additional comfort. It also offers excellent moisture control capacity to prevent sweat for a cool in-shoe experience.
@@ -232,7 +119,7 @@ To ensure unmatched comfort, the upper features Engineered Hypoknit technology t
 The bootie construction around the collar provides a non-irritating wrap to ensure a supportive and comfortable running experience.
 
 The shoe also incorporates an ultra-heel component that provides a supportive and snug fit. The component holds the back the foot in place and prevents wobbling or accidental shoe removal.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Lightweight
 - Comfortable
 - Durable
@@ -240,43 +127,15 @@ The shoe also incorporates an ultra-heel component that provides a supportive an
 - Ideal for long-distance running
 - Excellent cushioning
 - Supportive
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Some customers reported that its A bit tight
-[/su_list][/su_box][/su_column] [/su_row]
+
 Also Read:
 [Best Women’s Running Shoes for Shin Splints](https://pestpolicy.com/best-womens-running-shoes-for-shin-splints/)
 ### [5. Saucony Men's Kinvara 10 ITBS Running Shoe](https://www.amazon.com/dp/B07G4CGB39/?tag=p-policy-20)
 Saucony Kinvara 10 is a neutral running shoe that’s highly versatile. It’s lightweight and conforms to the shape of the foot a responsive running experience.
-[](https://www.amazon.com/dp/B07G4CGB39/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KM9FBSS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0797D3GYP/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078C661YJ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07C6JB568/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B001EJMYQO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B018QS97IS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B077Z99PQD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07TB5KSR7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MHP7QWF/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07Q3L258K/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07XD777BM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07VVRRRBG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07DYG7C3V/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788Y2QQH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The midsole features EVERUN top sole construction that helps to energize the foot during the running session. The EVERUN™ is lightweight allowing the wearer to lift their feet effortlessly without much strain.
 
 The EVA+ works as the cushioning system for the whole shoe. It’s thick enough and helps to balance the foot to attain its proper form during the running session.
@@ -290,47 +149,19 @@ The padded collar and tongue help to keep the feet in place. They also provide a
 The upper of Saucony Kinvara 10 features an engineered mesh upper that allows excellent breathability. The mesh is stretchy enough to accommodate your foot securely and provide you an adaptive fit and relaxed ride. The upper also has Flex Film overlays that help to hold the foot securely during running.
 
 The heel and the forefoot sections of the outsole feature durable compounds that enhance the durability and grip of the outsole. The flex groove pattern allows the natural movement or flexing of the foot by providing the needed flexibility.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Excellent cushioning
 - Lightweight construction
 - Stable midsole
 - Stylish
 - Durable
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Some people reported the shoe is a bit heavier
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [6. Brooks Women's Adrenaline GTS 20 Running Shoe](https://www.amazon.com/dp/B0816SKLRK/?tag=p-policy-20)
 Brooks Adrenaline GTS 20 is another awesome running sneaker that supports the needs of runners with IT Band Syndrome. It features a perfect mix of comfort, support, and flexibility.
-[](https://www.amazon.com/dp/B0816SKLRK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KM9FBSS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0797D3GYP/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078C661YJ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07C6JB568/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B001EJMYQO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B018QS97IS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B077Z99PQD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07TB5KSR7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MHP7QWF/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07Q3L258K/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07XD777BM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07VVRRRBG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07DYG7C3V/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788Y2QQH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The shoe features GuideRails® support system that provides unmatched stability. The technology also averts overpronation by keeping excess movement in check during running or walking.
 
 The midsole of GTS 20 also incorporates a good combination of DNA Loft foam and BioMoGo DNA foam. These two cushioning technologies promote great performance while ensuring runners with IT Band Syndrome have all the support they need to achieve their workout goals.
@@ -340,7 +171,7 @@ The shoe also includes a segmented crash pad that improves the cushioning and su
 The upper of Adrenaline GTS 20 features an updated dual-layer FlexFit that provides a secure and flexible fit to combat overpronation. The FlexFit features a stretch engineered mesh that’s highly breathable and conforms to the shape of the wearer’s foot for a secure running experience. The forefoot is also spacious to accommodate wide feet.
 
 The 3D print design reinforces the upper and provides needed support to enhance its shape and structure. The padded tongue provides extra comfort and support to the foot.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Excellent cushioning
 - Supportive
 - Comfortable
@@ -350,41 +181,13 @@ The 3D print design reinforces the upper and provides needed support to enhance 
 - Durable
 - Lightweight
 - Stylish
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - A few people reported that the shoe has a narrow heel section
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [7. Adidas Originals Women's Ultraboost](https://www.amazon.com/dp/B0716KVVDJ/?tag=p-policy-20)
 The Ultraboost ST incorporates superior cushioning, comfort, flexibility, and support to help runners with knee issues and those with IT Band Syndrome achieve their running goals.
-[](https://www.amazon.com/dp/B0716KVVDJ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KM9FBSS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0797D3GYP/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078C661YJ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07C6JB568/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B001EJMYQO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B018QS97IS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B077Z99PQD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07TB5KSR7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MHP7QWF/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07Q3L258K/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07XD777BM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07VVRRRBG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07DYG7C3V/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788Y2QQH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The midsection features a Dual-density Boost technology that offers excellent cushioning for a responsive and energized ride.
 
 Ultraboost ST also features a Torsion System that holds the shoe together for a smooth heel to toe transition. This system is prominent on the heel and forefoot sections and it provides ample arch support for enhanced stability during running.
@@ -394,16 +197,17 @@ The upper features an engineered mesh that offers a breathable feeling for a coo
 The construction of Ultraboost ST incorporates Aramis motion capture technology. The technology ensures that the shoe adapts properly to the natural shape of the foot during walking or running.
 
 Ultraboost ST utilizes Stretchweb outsole for enhanced durability and traction. Don’t let the thinness of the outsole discourage you from buying this shoe. The outsole is highly durable compared to most shoes in the same category and it offers exceptional underfoot protection.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Supportive
 - Excellent stability
 - Well-cushioned
 - Exceptional outsole durability
 - Comfortable
 - Roomy forefoot
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Slightly heavy
-[/su_list][/su_box][/su_column] [/su_row]
+
 ## Buyers Guide for Best Running Shoes for IT Band Syndrome
 ### Fit And Comfort
 Shoes that fit right provide the wearer with superior comfort helping to avert knee pain and other foot discomforts that may hinder your running schedule.

@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: What Happens When You Squish a Bed Bug?
 date: '2025-05-04T02:42:40+00:00'

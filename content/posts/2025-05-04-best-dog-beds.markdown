@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Top 7 Best Dog Beds 2025 Reviewed
 date: '2025-05-04T10:53:30+00:00'

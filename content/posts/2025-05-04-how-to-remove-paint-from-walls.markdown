@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How to Remove Paint from Walls
 date: '2025-05-04T04:34:57+00:00'

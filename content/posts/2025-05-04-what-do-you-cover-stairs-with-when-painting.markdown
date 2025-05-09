@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: What Do You Cover Stairs With When Painting?
 date: '2025-05-04T19:05:42+00:00'

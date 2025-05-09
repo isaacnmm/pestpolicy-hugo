@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Ant Control in Bellingham
 date: '2025-05-04T16:48:45+00:00'

@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: 7 Best Shoes for High Arches and Standing All Day 2025
 date: '2025-05-04T13:42:15+00:00'
@@ -18,34 +18,7 @@ Related:
 ## Review: 7 Best Shoes for High Arches and Standing All Day
 ### [1. New Balance Men's 990 V5](https://www.amazon.com/dp/B0797D3GYP/?tag=p-policy-20)- Shoes for High Arches and Standing All Day
 New Balance 990 V5 is a comfortable well-cushioned shoe that’s ideal for all-day wear. It features excellent support technologies that make your days easier.
-[](https://www.amazon.com/dp/B0797D3GYP/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078C661YJ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07C6JB568/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B001EJMYQO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B018QS97IS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B077Z99PQD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07TB5KSR7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MHP7QWF/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07Q3L258K/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07XD777BM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07VVRRRBG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07DYG7C3V/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788Y2QQH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 For starters, the midsole features the Encap technology that provides soft cushioning and support to the foot. This technology also provides needed stability and durability for a longer wear experience. To ensure all-day comfort and support for your high arches, the midsole provides a firm, flexible, and supportive structure.
 
 Other than that, the outsole of New Balance 990 V5 hard carbon rubber compound that provides superior durability. This rubber compound is spread across the lateral and heel sections of the outsole to promote the shoe’s durability and
@@ -55,45 +28,19 @@ during workouts.
 The other sections of the platform utilize blown rubber material that provides underfoot cushioning making standing all day bearable. The blown rubber compound also protects the wearer from hard impacts. It also delivers reliable grip on various surfaces ensuring your safety throughout the day.
 
 The NB 990 V5 has an upper that uses open mesh and pigskin suede. The mesh material allows entry of air into the shoe for a comfortable and fresh in-shoe environment. The Pigskin suede delivers comfort and durability.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Comfortable
 - Cushioned and supportive
 - Provides snug fit
 - Flexible
 - Ideal for all-day wear
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - A bit heavier than its predecessor
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [2. Vionic Women's Cosmic Codie Slip-On Sneaker](https://www.amazon.com/dp/B07DX7Y2NM/?tag=p-policy-20)
 Vionic Women's Cosmic Codie Slip-On shoes provide arch support and comfort. Hence, they are some of the best shoes for high arches and standing all day.
-[](https://www.amazon.com/dp/B07DX7Y2NM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078C661YJ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07C6JB568/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B001EJMYQO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B018QS97IS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B077Z99PQD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07TB5KSR7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MHP7QWF/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07Q3L258K/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07XD777BM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07VVRRRBG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07DYG7C3V/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788Y2QQH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 These high-quality casual walking shoes come in different styles and colors allowing anyone in need of supportive shoes to find their favorite pair.
 
 These vionic slip-on sneakers provide everyday support and comfort thanks to the podiatrist-designed footbed that’s incorporated into the shoe’s construction. The footbed provides needed stability allowing you to remain stable throughout the day.
@@ -105,47 +52,21 @@ Another incredible feature is the removable mesh and EVA footbed. The mesh allow
 Furthermore, the rubber outsole provides protection and reliable traction on various surfaces. So you don’t need to worry about falling or sliding.
 
 The shoe also incorporates innovative biomechanics to give you the most stylish and reliable shoe for high arches and all-day standing.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Comfortable
 - Arch support
 - Reliable traction
 - Slip-on design
 - Stylish and colorful
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - A bit narrow according to some reviews
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [3. Dansko Women's Professional Clog](https://www.amazon.com/dp/B00B460M6G/?tag=p-policy-20)
 Dansko Women's Professional Clog is a highly durable and supportive women’s work shoe that promises all-day comfort. It has a roomy toe box that allows the natural wiggling of toes. Hence, helps to soothe common foot issues like
 [bunions and hammertoes](https://pestpolicy.com/best-shoes-for-hammer-toes-and-bunions/)
 .
-[](https://www.amazon.com/dp/B00B460M6G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078C661YJ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07C6JB568/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B001EJMYQO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B018QS97IS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B077Z99PQD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07TB5KSR7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MHP7QWF/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07Q3L258K/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07XD777BM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07VVRRRBG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07DYG7C3V/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788Y2QQH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The Dansko Professional Clog is available in a wide selection of different patterns, colors, and animal prints. Thus, it’s easy to find a style that matches your taste and preference. The uppers of these shoes are all leather, which provides a soft, durable, and lightweight feeling for a great all-day experience.
 
 This professional clog also has a reliable heel counter that provides lateral stability. Hence, allows the back of the foot to move freely without exiting the shoe.
@@ -155,7 +76,7 @@ The Padded instep collar provides comfort when standing or walking ensuring you 
 The front part of the outsole has an anti-fatigue rocker bottom that prevents the foot from getting tired or uncomfortable as you continue with your daily activities.
 
 The shoe also a Wide heel strike that provides reliable stability and balance while standing or walking.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Excellent shock absorption
 - Comfortable
 - Reliable traction
@@ -163,41 +84,15 @@ The shoe also a Wide heel strike that provides reliable stability and balance wh
 - Leather upper
 - Durable
 - Provides stability
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Doesn’t accommodate inserts
-[/su_list][/su_box][/su_column] [/su_row]
+
 Also Read:
 [Best Shoes for Physical Therapists](https://pestpolicy.com/best-shoes-for-physical-therapists/)
 ### [4. Brooks Men’s Beast '20 Running Shoe](https://www.amazon.com/dp/B07VGX9W6Z/?tag=p-policy-20)
 The Brooks Beast '20 is excellent stability running shoe that’s ideal for walking and all-day wear. It has excellent features and technologies that provide sturdiness, support, and stability.
-[](https://www.amazon.com/dp/B07VGX9W6Z/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078C661YJ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07C6JB568/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B001EJMYQO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B018QS97IS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B077Z99PQD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07TB5KSR7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MHP7QWF/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07Q3L258K/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07XD777BM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07VVRRRBG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07DYG7C3V/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788Y2QQH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The shoe features GuideRails® support system that helps to keep excess movement in check. It locks the wearer’s foot securely for a comfortable and secure wear experience.
 
 The midsole features DNA LOFT cushioning component that delivers a smooth and luxurious underfoot feeling. The cushioning protects you during hard ground impact while ensuring durability.
@@ -209,7 +104,7 @@ The outsole features a high Abrasion-resistant Rubber compound that delivers a l
 The shoes also have Omega Flex Grooves that enhance the shoe’s flexibility, hence encourage natural foot movement.
 
 The upper of Brooks Beast '20 features an engineered mesh that allows entry of air into the shoe for a comfortable and fresh in-shoe experience. Hence, promotes a healthy and clean shoe interior. The soft mesh lining wicks moisture away, helping to control the accumulation of sweat for a pleasant wear experience.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Comfortable
 - Lightweight
 - Supportive
@@ -217,39 +112,13 @@ The upper of Brooks Beast '20 features an engineered mesh that allows entry of a
 - Highly versatile
 - Durable
 - Wide toe box
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Pricey
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [5. ASICS Women's Fuzex Lyte 2 Running Shoe](https://www.amazon.com/dp/B0761Y1JPY/?tag=p-policy-20)
 ASICS Fuzex Lyte 2 supports high arches and its ideal for all-day standing. Most people are happy with seamless construction, perfect fit, and high performance.
-[](https://www.amazon.com/dp/B0761Y1JPY/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078C661YJ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07C6JB568/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B001EJMYQO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B018QS97IS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B077Z99PQD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07TB5KSR7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MHP7QWF/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07Q3L258K/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07XD777BM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07VVRRRBG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07DYG7C3V/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788Y2QQH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The midsole of Fuzex Lyte 2 features FuzeGEL™, which is the newest GEL cushioning technology from Asics. This cushioning technology combines EVA foam and Asics’ GEL cushioning. As a result, the wearer benefits from a firm, lightweight, and adaptable comfort.
 
 On the other hand, the outsole of ASICS Fuzex Lyte 2 features AHAR® (Asics High Abrasion Rubber). This compound provides excellent abrasion resistance, unmatched cushioning, reliable traction, and durability.
@@ -259,46 +128,20 @@ The AHAR® compound fills most sections of the outsole including the heel, midfo
 FuzeX Lyte 2 also has an upper section that utilizes an engineered mesh. This mesh material is breathable and allows a sufficient amount of air into the shoe for a fresh and comfortable wear experience.
 
 The removable Ortholite sock liner provides extra comfort. it also has an exceptional moisture-wicking property that helps to keep the feet fresh and dry throughout. Hence, it promotes a clean and healthy in-shoe environment.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Comfortable
 - Lightweight
 - Stylish design
 - Excellent heel cushioning
 - Supportive
 - Affordable
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Small sizing according to some reviews
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [6. Mizuno Men's Wave Rider 22 Knit Running Shoe](https://www.amazon.com/dp/B079ZB4X9D/?tag=p-policy-20)
 Mizuno Wave Rider 22 Knit provides a comfortable and supportive wear experience. It boasts of unmatched flexibility, protection, cushioning, and breathability. Hence, it’s one of the best shoes for high arches and standing all day.
-[](https://www.amazon.com/dp/B079ZB4X9D/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078C661YJ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07C6JB568/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B001EJMYQO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B018QS97IS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B077Z99PQD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07TB5KSR7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MHP7QWF/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07Q3L258K/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07XD777BM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07VVRRRBG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07DYG7C3V/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788Y2QQH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The midsole of Wave Rider 22 Knit has a dual-compound SmoothRide technology. The technology incorporates U4icX and U4ic, which promote a bouncy ride. U4icX ensures a high rebound rate while U4ic promotes comfort, shock attenuation, and durability.
 
 The shoe also incorporates Mizuno Wave technology, which is another midsole cushioning that provides excellent shock absorption. Hence, protects the wearer from injuries while ensuring a stable ride.
@@ -308,7 +151,7 @@ The Wave Rider 22 Knit also features Cloud Wave technology. The technology provi
 The upper features DynamotionFit technology that offers the best fit, hence, prevents unintended unraveling of the heel collar during running, walking, or standing. The Anatomical Sockliner provides extra cushioning while the U4icX Strobel lasting board ensures a pleasant and comfortable underfoot feeling.
 
 The outsole of Wave Rider 22 Knit features a blown rubber compound that provides unmatched traction and protection against abrasion. The heel section features an X10 carbon rubber that delivers more traction. The flex controllers provide more flexibility allowing the natural movement of the foot.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Lightweight
 - Comfortable
 - Supportive
@@ -316,39 +159,13 @@ The outsole of Wave Rider 22 Knit features a blown rubber compound that provides
 - Durable
 - Reliable grip
 - Breathable
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - A bit narrow according to some users
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [7. Nike Women's Revolution 5 Running Shoe](https://www.amazon.com/dp/B07RFNNT9N/?tag=p-policy-20)
 Nike Women's Revolution 5 is another incredible road running shoe that’s ideal for people with high arches that need to be on their feet for extended periods. The shoe is breathable, lightweight, and cushioned.
-[](https://www.amazon.com/dp/B07RFNNT9N/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078C661YJ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07C6JB568/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B001EJMYQO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B018QS97IS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B077Z99PQD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07TB5KSR7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MHP7QWF/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07Q3L258K/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07XD777BM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07VVRRRBG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07DYG7C3V/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788Y2QQH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 Nike Revolution 5 features a soft midsole foam, which provides a more responsive performance when it comes to running, walking, or just standing. Further, the shoe features a lightweight construction that doesn’t put excess weight on feet allowing you supreme comfort throughout the day.
 
 The soft midsole form delivers lightweight cushioning for a smooth, balanced, and stable experience while standing or walking. The textured exterior conceals creases and helps to reduce the overall weight of the shoe.
@@ -356,16 +173,17 @@ The soft midsole form delivers lightweight cushioning for a smooth, balanced, an
 The upper of Revolution 5 features a knit textile that provides a lightweight yet durable cover that’s highly durable. This textile allows entry of air into the shoe for a comfortable and fresh in-shoe environment.  The overlays and reinforced heel provide extra support and durability.
 
 These women’s running shoes feature a durable rubber outsole that provides reliable traction on various surfaces. The tread pattern allows natural foot movement for a more responsive ride.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Lightweight
 - Comfortable
 - Cushioned
 - Supportive
 - Roomy toe box
 - Stylish
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - The upper is not durable according to some buyers
-[/su_list][/su_box][/su_column] [/su_row]
+
 ## Buyers Guide for Best Shoes for High Arches and Standing All Day
 ### Arch Support
 When choosing the best shoes for high arches and standing all day it’s crucial that you pick ones with good arch support. You might opt for those that accommodate orthotics or those with supportive shanks at the outsole. Shanks takes the load off your feet allowing you to flex naturally.

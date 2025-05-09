@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: Does Vinegar Remove Paint?
 date: '2025-05-04T00:16:18+00:00'

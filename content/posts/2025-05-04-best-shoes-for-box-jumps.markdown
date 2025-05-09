@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: 7 Best Shoes for Box Jumps 2025
 date: '2025-05-04T08:11:48+00:00'
@@ -24,36 +24,7 @@ Related:
 ## Review:  7 Best Shoes for Box Jumps
 ### [1. Reebok Men's Nano X1 Cross Trainer](https://www.amazon.com/dp/B08W5NGZCN/?tag=p-policy-20)- Shoes for Box Jumps
 If you’re looking for an all-around sneaker that will allow you to do box jumps plus other workouts pick the Nano X1. This is one of the best shoes For CrossFit and Insanity. It will take you through various exercises without getting a biting.
-[](https://www.amazon.com/dp/B08W5NGZCN/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B082VFHFG5/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B08MLCX6WQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B082CVKMBL/tag=p-policy-20)
-[](https://www.amazon.com/dp/B07897QMX4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01N1I12JN/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MNJWWKZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07NBKSBH7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007C1O3SK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KJPJRVR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01CTGOD9G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07BVZ6YRR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078SYZSVK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007OWTO4A/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0012HR2I8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 Besides that, the Nano X1 features an EVA foam midsole that provides excellent shock absorption and protection against impact during box jumps and other workouts. You’ll appreciate the stabilizing foot comfort that these men’s athletics sneakers deliver. Hence, they accommodate high-intensity workouts, lifting, running, cardio, and CrossFit.
 
 More than that, the Nano X1 is a lightweight and supportive shoe that allows you to perform your box jumps more efficiently and effectively.
@@ -65,7 +36,7 @@ In addition, the Nano X1 integrates Floatride Energy Foam in its construction. T
 Other than that, the upper utilizes a Flexweave knit fabric that delivers both durability and breathability. The upper also has adequate support to allow multidirectional movement.
 
 Besides that, the Nano X1 has a heel drop of 7 mm. this heel height provides extra heel cushioning for jumping exercises and running.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Multi-purpose trainers can accommodate all workouts
 - Excellent in-step comfort
 - Excellent outsole grip
@@ -73,43 +44,15 @@ Besides that, the Nano X1 has a heel drop of 7 mm. this heel height provides ext
 - Exceptional cushioning
 - Spacious toe box
 - reliable heel lockdown
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Some reviewers have complained about heel rubbing
-[/su_list][/su_box][/su_column] [/su_row]
+
 Related:
 [Best Shoes for Lateral Movement](https://pestpolicy.com/best-shoes-for-lateral-movement/)
 ### [2. Inov-8 Men’s F-Lite 235 v3](https://www.amazon.com/dp/B07KXSF248/tag=p-policy-20)
 Most CrossFit enthusiasts are amazed at the high performance and responsiveness of the Inov-8 F-Lite 235 v3. The shoe is lightweight and flexible. You’ll love that these shoes can handle all exercises including box jumps, squats, burpees, and the treadmill among many other workouts.
-[](https://www.amazon.com/dp/B07KXSF248/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B082VFHFG5/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B08MLCX6WQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B082CVKMBL/tag=p-policy-20)
-[](https://www.amazon.com/dp/B07897QMX4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01N1I12JN/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MNJWWKZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07NBKSBH7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007C1O3SK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KJPJRVR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01CTGOD9G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07BVZ6YRR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078SYZSVK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007OWTO4A/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0012HR2I8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The bottom of the Inov-8 F-Lite 235 v3 utilizes a performance outsole technology, which encourages the natural movement of the foot. This technology delivers an excellent ground foot feel allowing the wearer to jump or move with ease during workouts.
 
 The outsole also delivers excellent traction and grip on all workout surfaces allowing you to perform your box jumps with confidence. The outsole also utilizes vertical grooves and horizontal patterns that encourage the foot to spread naturally and clutch the workout surfaces efficiently.
@@ -123,50 +66,22 @@ Besides that, these CrossFit men’s training shoes have a low heel-to-toe drop 
 More than that, the forefoot is also wide and spacious enough to allow the natural movement of the toes for an effective workout and weightlifting experience.
 
 In addition, you’ll appreciate the comfortable design that this CrossFit provides. It features a durable upper with elastic mesh liners that embrace the foot for extra comfort and support. The upper also provides excellent breathability.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Lightweight and flexible
 - Delivers comfortable fit
 - Provides excellent cushioning for high impact exercises
 - Highly stable
 - Reliable outsole traction and grip
 - Durable
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - You might need to size a half size higher
-[/su_list][/su_box][/su_column] [/su_row]
+
 Read Also:
 [Best Cross Training Shoes for High Arches](https://pestpolicy.com/best-cross-training-shoes-for-high-arches/)
 ### [3. Reebok Men's R CROSSFIT Speed TR 2.0 D Sneaker](https://www.amazon.com/dp/B01N9OAHNS/?tag=p-policy-20)
 The Reebok Men's R CROSSFIT Speed TR 2.0 are among the best CrossFit shoes for box jumps. This box jumps sneakers are highly versatile, thus accommodates a variety of workouts. The trainer also provides adequate support, stability, and cushioning for box jumps, weightlifting, and many other exercises.
-[](https://www.amazon.com/dp/B01N9OAHNS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B082VFHFG5/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B08MLCX6WQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B082CVKMBL/tag=p-policy-20)
-[](https://www.amazon.com/dp/B07897QMX4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01N1I12JN/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MNJWWKZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07NBKSBH7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007C1O3SK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KJPJRVR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01CTGOD9G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07BVZ6YRR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078SYZSVK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007OWTO4A/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0012HR2I8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 Furthermore, this Reebox CrossFit shoe features an updated tread pattern on its outsole. The lugs face different directions to deliver multidirectional grip and traction on various surfaces.
 
 Besides that, the entire platform incorporates MetaSplit flex grooves that provide extra flexibility for the natural movement of the foot. The forefoot also has enough of these grooves to allow additional flexibility and efficient bending of the forefoot during workouts like
@@ -180,49 +95,21 @@ Besides that, the rearfoot of this cross trainer includes a TPU Kip Klip. This c
 In addition, the upper utilizes a Cordura fabric. This fabric can withstand intense workouts and is resistant to abrasions, tears, or scuffs. The material also has tiny pores that allow entry of air for a fresh and dry in-shoe experience.
 
 The heel area and the forefoot are covered with synthetic material that provides protection during impacts.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Multipurpose cross trainers
 - Provides Reliable grip on various surfaces
 - Firm heel promotes stability for weightlifting
 - Lightweight and breathable
 - Flexible to allow multi-directional movements
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Some wide footed people reported that that they couldn’t find a comfortable fit
-[/su_list][/su_box][/su_column] [/su_row]
+
 Also Read
 [: best shoes for Stairmaster](https://pestpolicy.com/best-shoes-for-stairmaster/)
 ### [4. Nike Women's Fitness Shoes](https://www.amazon.com/dp/B084GZSX59/?tag=p-policy-20)
 The Nike Metcon 5 is one of the best shoes for box jumps. It has numerous features and technologies that allow it to accommodate multiple workouts without compromising on its quality.
-[](https://www.amazon.com/dp/B084GZSX59/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B082VFHFG5/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B08MLCX6WQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B082CVKMBL/tag=p-policy-20)
-[](https://www.amazon.com/dp/B07897QMX4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01N1I12JN/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MNJWWKZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07NBKSBH7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007C1O3SK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KJPJRVR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01CTGOD9G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07BVZ6YRR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078SYZSVK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007OWTO4A/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0012HR2I8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 For starters, the midsole provides excellent support for box jumping and other intense training. It integrates a drop-in midsole feature a dual-density aspect. The forefoot area is flexible and soft. Hence, accommodates exercises that involve a lot of toe bending and flexibility.
 
 Furthermore, the heel section is firm enough and allows the wearer to maintain close ground contact. Hence, it's easier to control your movements under heavy loads.
@@ -236,47 +123,19 @@ Furthermore, this Metcon series also incorporates the removable Hyperlift insert
 Besides that, the padded heel collar, the TPU heel clip, and the dense synthetic leather wrap provide excellent rearfoot support ensuring a secure lockdown.
 
 Other than that, the upper has a tightly woven mesh that provides a snug foothold. The mesh also incorporates a Haptic chain-link layer that protects the mesh against abrasion.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - The wide platform and firm heel makes this one of the best stable shoes
 - Highly comfortable
 - Excellent grip and traction
 - Flexible forefoot
 - Highly versatile
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - You might need to order a high size higher than your usual size
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [5. New Balance Women's Minimus 20 V7 Cross Trainer](https://www.amazon.com/dp/B07RMW8C8X/?tag=p-policy-20)
 The New Balance Women's Minimus 20 V7 is another excellent box jumps shoe you might want to buy.  This women’s box jumps shoe is lightweight, comfortable, and highly flexible.
-[](https://www.amazon.com/dp/B07RMW8C8X/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B082VFHFG5/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B08MLCX6WQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B082CVKMBL/tag=p-policy-20)
-[](https://www.amazon.com/dp/B07897QMX4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01N1I12JN/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MNJWWKZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07NBKSBH7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007C1O3SK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KJPJRVR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01CTGOD9G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07BVZ6YRR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078SYZSVK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007OWTO4A/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0012HR2I8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The New Balance Minimus 20 V7 utilizes a single Vibram rubber outsole. This durable outsole delivers excellent traction on both indoor and outdoor surfaces. The outsole is also non-marking, thus doesn’t leave irritating marks on surfaces.
 
 Furthermore, the forefoot also has amazing tread patterns that provide traction and flexibility to perform plyometrics, burpees, among others.
@@ -290,49 +149,21 @@ Furthermore, the mesh windows on the upper enhance ventilation for a cool in-sho
 Besides that, the midsole also features a REVlite compound that provides lightweight cushioning. Hence, you’re guaranteed a comfortable underfoot feeling while doing your box jumps. The REVlite also helps in shock absorption during those intense workouts.
 
 These women’s workout shoes also provide a comfortable fit thanks to the molded asymmetrical collar that promotes a natural fit. The interior of this workout shoe also has cushioned insoles that provide additional underfoot comfort. These insoles are covered with textile to eliminate in-shoe slippage.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Comfortable cross-training shoe
 - Flexible
 - Lightweight
 - Excellent design and style
 - Durable
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Some people reported that the shoe runs small
-[/su_list][/su_box][/su_column] [/su_row]
+
 Also Read:
 [Best Cross Training Shoes for Bad Knees](https://pestpolicy.com/best-cross-training-shoes-for-bad-knees/)
 ### [6. ASICS Women's Conviction X Cross Trainer](https://www.amazon.com/dp/B01MQGUQHS/?tag=p-policy-20)
 If you’re looking for a comfortable all-around CrossFit shoe you need to pick the ASICS Conviction X. you’ll appreciate its excellent balance of minimalism, cushioning, and support. This women’s trainer has all the features that would make your box jumps a success.
-[](https://www.amazon.com/dp/B01MQGUQHS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B082VFHFG5/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B08MLCX6WQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B082CVKMBL/tag=p-policy-20)
-[](https://www.amazon.com/dp/B07897QMX4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01N1I12JN/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MNJWWKZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07NBKSBH7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007C1O3SK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KJPJRVR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01CTGOD9G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07BVZ6YRR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078SYZSVK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007OWTO4A/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0012HR2I8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 For starters, the outsole of Conviction X features the Asics High Abrasion Rubber compound that’s placed throughout the shoe’s platform. This compound delivers unmatched durability, traction, and grip on all workout surfaces. The outsole is also thick and flat to ensure effective weightlifting.
 
 Other than that, the midsole also uses a perforated sock liner to enhance moisture removal. Thus, improved breathability. The 4 mm heel-to-toe drop ensures a steady platform. You’ll love how you can efficiently control your foot movements during box jumps exercises.
@@ -344,47 +175,19 @@ Besides that, the top section of this women’s ASICS cross trainers features a 
 More than that, you’ll notice that the upper has a seamless construction that helps to prevent friction and irritation. Hence, you’re guaranteed a softer and comfortable feeling throughout the workout period.
 
 Furthermore, the toe box area has a mesh fabric that provides additional comfort and breathability. The shoe also boasts of an integrated lace garage that complies with lacing standard requirements. Hence, you’ll benefit from a snug and secured fit.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Superior comfort
 - Excellent outsole traction
 - Highly versatile
 - The best shoe for weightlifting
 - Highly breathable
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Not the best shoe for heavy weightlifting
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [7. New Balance Men's Dynasoft Trnr V1 Cross Trainer](https://www.amazon.com/dp/B0817FP6QT/?tag=p-policy-20)
 New Balance Men's Dynasoft Trnr V1 is another excellent shoe for box jumps. It’s one of the best-cushioned and efficient training shoes you can pick for the multiple workouts you’ll engage in at the gym.
-[](https://www.amazon.com/dp/B0817FP6QT/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B082VFHFG5/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B08MLCX6WQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B082CVKMBL/tag=p-policy-20)
-[](https://www.amazon.com/dp/B07897QMX4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01N1I12JN/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MNJWWKZ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07NBKSBH7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007C1O3SK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KJPJRVR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B01CTGOD9G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07BVZ6YRR/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078SYZSVK/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B007OWTO4A/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0012HR2I8/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=shoesmix-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=spraypaintersden-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 Dynasoft Trnr V1 has numerous features and technologies to allow you to have a great workout experience.
 
 For starters, the multi-directional rubber outsole provides excellent grip on both indoor and outdoor surfaces allowing you to perform your box jumps with confidence. This shoe is ideal for anyone who trains on gym mats, concrete floors, or even indoor surfaces.
@@ -396,15 +199,16 @@ You’ll also love the excellent underfoot protection that this shoe provides du
 Besides that, the top section of the Dynasoft Trnr V1 features breathable mesh material. This material ensures durability and adequate airflow inside the shoe.
 
 Furthermore, the forefoot fins deliver unmatched balance and stability for the wearer. They also enhance the lateral support within the forefoot area.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Provides excellent support
 - Instep comfort
 - Durable construction
 - Excellent outsole traction
 - Casual and modernized design
 - Affordable
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - One reviewer reported that the tongue causes foot irritation
-[/su_list][/su_box][/su_column] [/su_row]
+
 ## Conclusion
 I hope that this review on the best shoes for box jumps has been helpful. When planning to do box jumps, it’s crucial that you choose shoes that offer forefoot protection and flexibility. Well-cushioned shoes are also a plus. Such shoes provide good shock absorption; hence protect you from hard impacts. Fortunately, all the shoes reviewed on this list are some of the best in the market. They are versatile and accommodate almost all exercises.

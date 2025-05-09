@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: 7 Best Shoes for Heel Pain When Walking 2025
 date: '2025-05-04T20:46:42+00:00'
@@ -18,38 +18,7 @@ Also Read:
 ## Review: 7 Best Shoes for Heel Pain When Walking
 ### [1. ASICS Women's Gel-Nimbus 22 Shoes for Heel Pain When Walking](https://www.amazon.com/dp/B01N18OTGG/?tag=p-policy-20)
 If you want a shoe that targets heel stability and elimination of heel pain while walking or running, pick ASICS Gel-Nimbus 22. The shoe provides excellent heel and arch support for plantar fasciitis sufferers.
-[](https://www.amazon.com/dp/B01N18OTGG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6KQS2P/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07TXW85NH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KM9FBSS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0797D3GYP/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078C661YJ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07C6JB568/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B001EJMYQO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B018QS97IS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B077Z99PQD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07TB5KSR7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MHP7QWF/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07Q3L258K/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07XD777BM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07VVRRRBG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07DYG7C3V/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788Y2QQH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The shoe features Trusstic™ technology that makes the shoe extremely light. It also provides needed stability while ensuring a longer wear period. The technology also features Guidance Line construction that helps to align the foot into the correct position during the gait cycle. It also provides midfoot structural technology.
 
 The midsection of Nimbus 22 also features Gel™ technology that provides excellent cushioning, which helps in shock reduction during toe-offs. This cushioning technology adjusts to the natural movement of the foot to prevent injuries or discomfort.
@@ -61,50 +30,20 @@ Furthermore, the Ortholite X-40 technology provides additional cushioning and co
 The upper features Multi-directional engineered mesh material that delivers superior comfort while allowing fresh air into the shoe. This material prevents the
 [top of foot pain](https://pestpolicy.com/best-shoes-for-pain-on-top-of-foot/)
 and discomfort, as it’s soft and breathable.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Comfortable
 - Supportive
 - Structured heel and midfoot to eliminate heel pain
 - Roomy toe box
 - Durable
 - Stylish design
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Pricey
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [2. New Balance Men's 990 V4 Heel Pain Sneaker](https://www.amazon.com/dp/B0163GAT78/?tag=p-policy-20)
 New Balance 990 V4 delivers excellent stability that helps to eliminate heel pain while walking or running.  The shoe is highly versatile and accommodates multiple activities.
-[](https://www.amazon.com/dp/B0163GAT78/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6KQS2P/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07TXW85NH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KM9FBSS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0797D3GYP/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078C661YJ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07C6JB568/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B001EJMYQO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B018QS97IS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B077Z99PQD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07TB5KSR7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MHP7QWF/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07Q3L258K/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07XD777BM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07VVRRRBG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07DYG7C3V/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788Y2QQH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The midsole of 990 V4 features ENCAP technology that incorporates a Polyurethane rim and ACTEVA LITE foam. These components enhance the durability, stability, and cushioning of the shoe.
 
 Walkers with low arches and heel pain will benefit from the soft cushioning. The ACTEVA LITE and Polyurethane rim work in conjunction to correct overpronation. Hence, prevent pain associated with low arches. They also help to relieve pain and discomfort on the hip, knee, and foot for a pleasant walking experience.
@@ -112,49 +51,19 @@ Walkers with low arches and heel pain will benefit from the soft cushioning. The
 The upper of NB 990 V4 features a durable mesh material with an open construction design that allows entry of air into the shoe for a dry and fresh in-shoe experience. The mesh material incorporates Lightweight but durable pigskin leather on its top. This leather cover allows a longer wear period for a fulfilling running experience.
 
 The New Balance 990 V4 has an outsole that utilizes the Blown Rubber compound. This rubber compound promises durability and high performance. The outsole also has flexion grooves that deliver a reliable grip on surfaces.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Durable upper construction
 - Durable and stable outsole
 - ENCAP midsole technology provides underfoot support
 - Comfortable
 - Comes in wide width options
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - The bulky design was unappealing to most people
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [3. Brooks Womens Adrenaline GTS 19 Running Shoe](https://www.amazon.com/dp/B081KHQTLH/?tag=p-policy-20)- Best Shoes for Heel Pain
 Brooks Adrenaline GTS 19 offers a perfect combination of support, cushioning, stability, and comfort. People with overpronation, heel pain, and other foot conditions will benefit from the features and technologies that the shoe provides.
-[](https://www.amazon.com/dp/B081KHQTLH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6KQS2P/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07TXW85NH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KM9FBSS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0797D3GYP/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078C661YJ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07C6JB568/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B001EJMYQO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B018QS97IS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B077Z99PQD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07TB5KSR7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MHP7QWF/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07Q3L258K/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07XD777BM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07VVRRRBG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07DYG7C3V/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788Y2QQH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 For starters, the shoe features a GuideRails Holistic Support System that’s prominent on the medial midfoot and lateral heel sections. This system helps to lock the foot securely to prevent excess movement, thus, combat overpronation.
 
 Furthermore, the midsole also features a lightweight yet durable DNA LOFT foam that delivers reliable cushioning. The DNA LOFT foam work with EVA foam to provide comfort, support, and sturdiness.
@@ -170,49 +79,19 @@ GTS 19 also utilizes an engineered mesh in its top section. The mesh is cloth-li
 The shoe also features padded collar and tongue that provide cushioning on the top sections of the foot including the ankles and the Achilles tendon.
 
 The heel sections and both sides of the shoe feature a 3D Fit Print technology that helps to secure the foot in place, hence, prevent the foot from exiting the shoe unintended.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Breathable and flexible upper
 - Comfortable
 - Excellent pronation support
 - Reliable traction
 - Excellent stability
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Some wearers reported that the stitches unraveled after a few months of use
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [4. Gravity Defyer Women's G-Defy Plantar Fasciitis Shoes](https://www.amazon.com/dp/B07VGL7LT6/?tag=p-policy-20)
 Finding a shoe that’s comfortable and can help in alleviating heel pain while walking can be daunting. Gravity Defyer  G-Defy is an excellent shoe for alleviating pain and discomfort especially if you’re suffering from plantar fasciitis, back injuries, and knee pain among other conditions.
-[](https://www.amazon.com/dp/B07VGL7LT6/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6KQS2P/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07TXW85NH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KM9FBSS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0797D3GYP/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078C661YJ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07C6JB568/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B001EJMYQO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B018QS97IS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B077Z99PQD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07TB5KSR7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MHP7QWF/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07Q3L258K/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07XD777BM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07VVRRRBG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07DYG7C3V/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788Y2QQH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 This heel pain shoe provides unmatched foot stability, comfort, and cushioning. This is a pain relief-walking shoe that features VersoShock Technology. The technology provides excellent shock absorption helping to prevent injuries caused by hard impact while walking.
 
 The front rocker sole works with the supported midfoot to help combat or relieve pain caused by plantar fasciitis. The shoe also has a rigid midsole and heel cup, which helps to take the pressure off the plantar fascia ligament.
@@ -220,50 +99,20 @@ The front rocker sole works with the supported midfoot to help combat or relieve
 The shoe features technologies like VersoShock, Extra -Depth Interior, and Strobel construction. All these technologies address issues that help with heel pain and Plantar Fasciitis. Such issues include shock absorption, support, and motion control.
 
 Another amazing feature is the Enhanced Lateral Stabilization that improves the walking gait while ensuring better ground reaction. The shoes also come with Removable insoles, which you can replace with custom orthotics if you’re in need of extra support and comfort.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Comfortable
 - Offers excellent shock absorption
 - Allows custom orthotics
 - Supportive
 - Relieves heel pain
 - Unmatched foot stability
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - A reviewer complained that the shoe runs big
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [5. Dansko Women's XP 2.0 Clogs](https://www.amazon.com/dp/B078HGRR2S/?tag=p-policy-20)
 Dansko Women's XP 2.0 Clogs is a highly comfortable shoe designed with excellent support for women with heel pain and plantar fasciitis. It has an array of features and technologies that make it ideal for all-day wear.
-[](https://www.amazon.com/dp/B078HGRR2S/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6KQS2P/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07TXW85NH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KM9FBSS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0797D3GYP/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078C661YJ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07C6JB568/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B001EJMYQO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B018QS97IS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B077Z99PQD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07TB5KSR7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MHP7QWF/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07Q3L258K/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07XD777BM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07VVRRRBG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07DYG7C3V/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788Y2QQH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 For starters, the Dansko XP 2.0 Clogs features a Padded instep collar that provides additional comfort as you walk.
 
 The lightweight EVA midsole ensures you’re less fatigued when on your feet for extended hours. The EVA foam also ensures excellent shock absorption and stability for all-day standing.
@@ -275,7 +124,7 @@ The Natural Arch technology provides superior comfort and support to the foot en
 .
 
 The shoe also features a durable slip-resistant outsole that provides all the safety you need while walking on wet, oily, or dry surfaces. The rocker bottom outsole helps in shock absorption while ensuring sufficient energy return for unmatched comfort.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Roomy toe box allows toes to move naturally
 - Allows use of inserts
 - Excellent shock absorption
@@ -283,45 +132,15 @@ The shoe also features a durable slip-resistant outsole that provides all the sa
 - Upper is all leather
 - Lightweight shoe
 - Supportive
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - A reviewer complained that the inside sole deteriorates quickly
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [6. HOKA ONE ONE Men's Bondi 6 Running Shoe](https://www.amazon.com/dp/B07DDMQ94C/?tag=p-policy-20)
 HOKA ONE ONE Bondi 6 is an excellent road running and walking shoe that’s ideal for all-day wear. The 6
 th
 iteration comes with existing updates that help relieve common pains and discomforts like heel, joint, and muscle pain.
-[](https://www.amazon.com/dp/B07DDMQ94C/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6KQS2P/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07TXW85NH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KM9FBSS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0797D3GYP/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078C661YJ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07C6JB568/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B001EJMYQO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B018QS97IS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B077Z99PQD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07TB5KSR7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MHP7QWF/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07Q3L258K/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07XD777BM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07VVRRRBG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07DYG7C3V/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788Y2QQH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 The midsole section of Bondi 6 features a soft EVA foam that provides excellent cushioning to the foot. The midsole also has Early Stage Meta-Rocker technology that promotes the effortless movement of the foot ensuring you have a great wear experience.
 
 Bondi 6 has an upper section that utilizes an engineered mesh material. The mesh provides a cloth-like fit ensuring you have a secure wrap. This mesh material also allows sufficient amount of air into the shoe for a dry and fresh walking or running experience.
@@ -329,51 +148,21 @@ Bondi 6 has an upper section that utilizes an engineered mesh material. The mesh
 The shoe also boasts of a reliable heel counter that helps to secure the heel section and prevent accidental shoe removal.
 
 On the outsole unit, Hoka One One Bondi 6 utilizes the Hi-Abrasion Rubber compound that’s lightweight and durable. This rubber compound is found in sections that are likely to experience high wear and tear.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Excellent cushioning
 - Highly versatile
 - Breathable upper
 - Attractive color schemes
 -
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - The rubber outsole wears off quickly according to some reviews
-[/su_list][/su_box][/su_column] [/su_row]
+
 ### [7. New Balance Men's Fresh Foam 1080 V10 Heel Pain Running Shoe](https://www.amazon.com/dp/B07RP19FKW/?tag=p-policy-20)
 New Balance Men's Fresh Foam 1080 V10 offers crucial heel and arch support for people with heel pain and plantar fasciitis. The shoe has excellent cushioning, best shock absorption, and a wide toe box to accommodate
 [wide footed people](https://pestpolicy.com/best-running-shoes-for-men-with-wide-feet/)
 .
-[](https://www.amazon.com/dp/B07RP19FKW/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6KQS2P/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07TXW85NH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07KM9FBSS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0797D3GYP/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B078C661YJ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07C6JB568/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B001EJMYQO/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B018QS97IS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B077Z99PQD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07TB5KSR7/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07MHP7QWF/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07Q3L258K/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07XD777BM/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07VVRRRBG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07DYG7C3V/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0788Y2QQH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07LCMTQ68/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07L6LLP61/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B079RKBPQT/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07SKKT2FD/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B07N171QLH/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0719MHX9L/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00B7EU1I4/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B000FFYLJQ/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0026SSW8G/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00IKVLXYI/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00C0E0PR2/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MDVLOBS/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 To ensure plush comfort, the NB 1080 v10 features Fresh Foam X midsole. Fresh Foam X is a cushioning technology that provides energetic rebounds. It also ensures the wearer enjoys a more responsive ride.
 
 The midsole also features ABZORB technology that provides a combination of durability and cushioning for a longer wear experience. It also provides soft underfoot cushioning.
@@ -387,16 +176,17 @@ The outsole also features flex grooves that enhance the shoe’s flexibility all
 The upper utilizes Engineered Hypoknit technology that’s responsible for comfort and support. The upper is also highly breathable ensuring sufficient air supply inside the shoe.
 
 The ultra-heel feature at the back of the shoe provides a supportive and comfortable fit. This feature helps in holding the heel section in place and helps to prevent in-shoe wobbling.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Lightweight
 - Comfortable
 - Durable
 - Well-cushioned
 - Supportive
 - Highly flexible
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Some customers reported that the shoe is tight
-[/su_list][/su_box][/su_column] [/su_row]
+
 ## Things to Consider When Buying Best Shoes for Heel Pain When Walking
 ### Arch Support
 When buying best shoes for heel pain when walking it’s crucial that you consider whether the shoe has ample arch support for your foot type.

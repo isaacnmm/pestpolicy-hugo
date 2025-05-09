@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: 7 Best Roach Sprays for 2025 Reviewed
 date: '2025-05-04T08:01:21+00:00'
@@ -36,27 +36,25 @@ Ortho spray is able to eliminate more than 130 insect species, among them includ
 This product is easier to use and apply. You simply press the spray button and aim to the intrusion of cockroaches – the instant poisonous spray will kill available roaches and repel any future infestation.
 Ortho home defense is very affordable. For indoor use, spray in the bathroom - floor & walls, crevices, kitchen cabinets, decks, windows, doors, and basement.
 Ortho is re-usable and long-lasting. You will not need to bend, pump, or cause hand fatigue during application.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Long-lasting – 12 months use.
 - Quick action – kills on contact.
 - Suitable for both indoors and outdoors.
 - Can inhibit/repel other home insects.
 - Do not irritate your skin.
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Unsuitable for the porous surface.
 - Dangerous for pets and children.
-[/su_list][/su_box][/su_column] [/su_row]
+
 Read Also:
 [Can Bed Bugs Get in Your Hair?](https://pestpolicy.com/can-bed-bugs-get-in-your-hair/)
 https://www.youtube.com/watch?v=VElGpyMG5TE
 ### [2. Raid Max Cockroach Spray - # 2 Pick](https://www.amazon.com/dp/B003AOA3HS/?tag=p-policy-20)
 Raid Max is our top cockroach spray. The effective formula in Raid spray pesticide is the synthetic pyrethroids, which affect the cockroach nervous system – this helps kill intrusion of cockroaches on contact.
-[](https://www.amazon.com/dp/B003AOA3HS/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=687dd409af74d82358f66be442326993)
-[](https://www.amazon.com/dp/B000A0UCRG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0015I3ESG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00E1N07LY/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
 Raid Max leaves behind a residual action that lasts for six months. The Quick-acting product can kill cockroaches in your place within 5 minutes - just like
 [freezing](https://pestpolicy.com/freeze-roaches-to-death/)
@@ -66,7 +64,7 @@ The product is multi-purpose. It can also be used to eliminate other insects/ani
 With Raid Max Spray, you can cover a large area in a few minutes (time-saving) due to its two-ways spray options.
 Raid Max Spray has a fantastic slim spray option that allows deep penetration to cockroaches hideouts. This product is too highly rated in the current market due to its unparalleled killing efficiency. Moreover, Raid Max is affordable. The product is shipped in a 6-bottle package.
 You can use Raid Max indoors or outdoors. Its mixture has a nice fragrance; thus, it won't irritate you during use.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Quick-acting – kills on contact.
 - Effective - kills in less than 5 minutes.
 - Easier to use.
@@ -76,21 +74,19 @@ You can use Raid Max indoors or outdoors. Its mixture has a nice fragrance; thus
 - Suitable for indoor and outdoor use.
 - Has a pleasant fragrance.
 - Can kill crickets, spiders, ants & water bugs too.
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Highly Flammable.
 - Has Poisonous chemical that may affect pets and kids.
-[/su_list][/su_box][/su_column] [/su_row]
+
 https://www.youtube.com/watch?v=YYKu68zDIZA
 Read Also:
 [Does Steam Kill Bed Bugs?](https://pestpolicy.com/does-steam-kill-bed-bugs/)
 ### [3. Wondercide Natural Indoor Pest Control Spray](https://www.amazon.com/dp/B0764VD7ZW/?tag=p-policy-20)
 Wondercide is a naturally derived alternative to a chemical product suitable for killing the entire cockroach intrusion.
-[](https://www.amazon.com/dp/B0764VD7ZW/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=ed67b96182f14cddaa65249662be326b)
-[](https://www.amazon.com/dp/B000A0UCRG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0015I3ESG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00E1N07LY/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
 This product is best for indoor cockroach treatment. It repels and kills crawling, flying, and stinging insects such as cockroaches, spiders, wasps, flies, mosquitoes, and moths on contact. It can also kill carpet beetles, palmetto, water bugs, scorpions, and ticks.
 Wondercide is quick-acting. It will kill the entire lifecycle of cockroaches in a couple of minutes. This spray is safe for humans and pets. It will not cause skin irritation or discomfort on contact.
@@ -99,7 +95,7 @@ Wondercide is best when used on carpet, furniture, floor, cracks, and bedding. I
 It is efficient to use Wondercide. A 32 Oz bottle can treat up to 400 square feet – this saves on monies (economic).
 Wondercide also helps in inhibiting the future infestation of cockroaches and other Home invading insects.
 The product is environment friendly. It contains no harmful chemical or artificial colors.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - No harmful chemical/No pollution.
 - Has aromatherapeutic fragrances.
 - Quick-acting.
@@ -109,20 +105,18 @@ The product is environment friendly. It contains no harmful chemical or artifici
 - Point application.
 - Long-Lasting.
 - Purely Natural.
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - No residual protection is available.
 - Requires regular application.
-[/su_list][/su_box][/su_column] [/su_row]
+
 Related:
 [Best Roach Killer](https://pestpolicy.com/best-roach-killer/)
 ### [4. Hot Shot Cockroach Spray](https://www.amazon.com/dp/B00YXR2TX2/?tag=p-policy-20)
 Hot Shot is an instant Cockroach killer. The spray is able to eliminate the entire lifecycle of the cockroach and the germs left behind.
-[](https://www.amazon.com/dp/B00YXR2TX2/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=4ab998949eac0721ff9e337c541fb79a)
-[](https://www.amazon.com/dp/B000A0UCRG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0015I3ESG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00E1N07LY/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
 Hot Shot Spray is quick-acting. It kills on contact within a couple of seconds after application. The killing power of Hot Shot remains effective for three months on single-use.
 The product is best when used (suitable) on non-porous surfaces. You will treat your indoors and outdoors (against cockroach intrusion) efficiently with Hot Shot without having any cockroach escaping death. To achieve this, apply beneath & around appliances, beneath & around baseboards, behind the sinks; then, allow the killing power to work.
@@ -130,7 +124,7 @@ Hot Shot has a fresh floral smell that does not irritate the user and fills the 
 The easy to use an aerosol spray can eliminate spiders (except brown recluse spider), ants (excluding pharaoh ants and fire ants), crickets, water bugs, fleas, stinkbugs, and firebrats.
 Hot Shot spray effectively penetrates cockroach hideouts due to its regulated Oz pressure. The ergonomically designed nozzle of Hot Shot enables easy point application.
 The product has no residual sanitizer. Hotshot eliminates and reduces 99.9% of germs associated and caused by cockroaches in your home or compound.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Long-Lasting – 3 months of action.
 - Has Floral scent.
 - Kills on contact.
@@ -139,27 +133,25 @@ The product has no residual sanitizer. Hotshot eliminates and reduces 99.9% of g
 - Kills germs caused by cockroaches.
 - No irritation.
 - Kills a variety of insects.
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - It can affect pets and children.
 - Kills on contact only.
-[/su_list][/su_box][/su_column] [/su_row]
+
 Read Also:
 [Yard Spray for Ticks Reviewed](https://pestpolicy.com/best-yard-spray-for-ticks/)
 ### [5. Combat Max Cockroach Spray](https://www.amazon.com/dp/B01NADH3VG/?tag=p-policy-20)
 Combat Max Spray is a cockroach and ant killer that works on contact. The micro-foam released during the pray action is able to expand continuously, enclosing the hard to reach areas – in turn suffocating the cockroaches right in their hideouts.
-[](https://www.amazon.com/dp/B01NADH3VG/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=837f495a378fe6e1dec0505678ce372b)
-[](https://www.amazon.com/dp/B000A0UCRG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0015I3ESG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00E1N07LY/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
 Combat Max is quick-acting. The combat's foam killing technology will eliminate cockroach intrusion in a couple of minutes on a single application. The can comes in a 17.5-Ounce package – suitable for multiple uses.
 This product does not stain your furniture or beddings during use. It dries invisibly after a few minutes on the application.
 Combat Max does not cause skin irritation to you and your humans during use. It leaves a pretty smell during action time in your room/house.
 This product is long-lasting. You can use Combat Max for up to 10 months. The aerosol spray comes with an easy to use nozzle, which enables point application.
 Combat Max Spray is readily available and affordable. You will also kill other insects such as ants with this product – they feed on the foam/gel remnants and die.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Quick-acting.
 - Effective –kills entire intrusion.
 - No skin irritation.
@@ -169,21 +161,19 @@ Combat Max Spray is readily available and affordable. You will also kill other i
 - Doesn't stain your items.
 - Kill on contact.
 - Deep penetration.
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - They are used on a non-porous surface only.
 - May form foam residuals.
 - May not prevent re-infestation entirely.
-[/su_list][/su_box][/su_column] [/su_row]
+
 Read Also:
 [Snake Repellent for Yard](https://pestpolicy.com/best-snake-repellent-for-yard/)
 ### [6. Bengal Roach Killer - Kill Whole Population](https://www.amazon.com/dp/B00KROV7H4/?tag=p-policy-20)
 Bengal is an exclusive propellant that will kill the entire cockroach intrusion in your house, office, or compound. It is designed to break the life cycle of the cockroaches, eventually eliminating them.
-[](https://www.amazon.com/dp/B00KROV7H4/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=c9bc48a17d164857347f62bfa71a4a75)
-[](https://www.amazon.com/dp/B000A0UCRG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0015I3ESG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00E1N07LY/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
 Nylar found in this aerosol spray is a powerful ingredient that prevents further reproduction of cockroaches. Bengal Gold Roach Spray has permethrin that helps kill the entire lifecycle of roaches.
 This is quick-acting. It will kill multiple cockroaches in a couple of seconds on contact. In addition, Bengal will inhibit the hatching of eggs and further re-infestation of cockroaches.
@@ -192,7 +182,7 @@ The dry penetrating formula used in the Bengal Gold Roach propellant does not st
 The well-designed Bengal's nozzle enables point application.
 The product is easier and safe to use. It will not irritate your skin on contact.
 Bengal Gold Roach Spray is odorless and will leave a pleasant scent while in action.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - Quick Acting.
 - Long-Lasting – treats for up to 6 months.
 - No skin irritation.
@@ -202,21 +192,19 @@ Bengal Gold Roach Spray is odorless and will leave a pleasant scent while in act
 - Does not stain your items.
 - It can also kill spiders, ants, flea, ticks, and mosquitoes.
 - Prevents cockroach Re-infestation & Reproduction.
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Not safe for children and pets.
 - It can irritate your nasal canals.
 - May not kill all cockroaches.
-[/su_list][/su_box][/su_column] [/su_row]
+
 Read Also:
 [Flea Spray For Yard Reviewed](https://pestpolicy.com/best-flea-spray-for-yard/)
 ### [7. Home Pest Repellent Spray](https://www.amazon.com/dp/B07P7WWW57/?tag=p-policy-20)
 The Home Pest Repellent spray is a naturally derived spray that is suitable for killing adult cockroaches and their eggs.
-[](https://www.amazon.com/dp/B07P7WWW57/ref=as_li_ss_il?&linkCode=li2&tag=p-policy-20&linkId=d80780acc468c9c633acaf3f2c900a3c)
-[](https://www.amazon.com/dp/B000A0UCRG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B0015I3ESG/?tag=p-policy-20)
-[](https://www.amazon.com/dp/B00E1N07LY/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
-[](https://www.amazon.com/dp/B00MV8MWEQ/?tag=p-policy-20)
+
 ![](/assets/img/e/ir)
 The USA made product is fast-acting. It is able to kill cockroaches on contact. It can also be used to kill other insects such as ants, spiders, earwigs, fleas, mites, or stink bugs in your house or compound.
 The Home Pest Repellent spray contains a relatively long-lasting residual effect of 1 to 2 weeks before re-application.
@@ -226,18 +214,19 @@ The Home Pest Repellent spray is easier and safe to use. Simply unseal the cover
 This product leaves behind a nice smell during the action. It will not irritate your skin on contact.
 Colton's Household Pest Repellant will keep off any cockroach and other insects from your house and also inhibit their future infestation.
 The Home Pest Repellent spray is environmentally friendly. It does not contain any harmful chemicals. You can use it on cabinets, doorways, sinks, appliance, or any other cockroach hideouts.
-[su_row][su_column size="1/2"][su_box title="Pros" title_color="#00bf08" box_color="#FFFFFF" radius="0"][su_list icon="icon: check" icon_color="#00bf08"]
+Pros:
 - No pollution.
 - Safe and easier to use.
 - Nice smell.
 - Kills a variety of insects.
 - Quick-acting.
 - Point application.
-[/su_list][/su_box][/su_column][su_column size="1/2"][su_box title="Cons" title_color="#FF0000" box_color="#FFFFFF" radius="0"][su_list icon="icon: ban" icon_color="#FF0000"]
+
+Cons:
 - Not for consumption.
 - I reapplied regularly.
 - Avoid direct eye contact.
-[/su_list][/su_box][/su_column] [/su_row]
+
 Related:
 [Why Do Cockroaches Come Out at Night](https://pestpolicy.com/why-do-cockroaches-come-out-at-night/)
 ## What damage can Roaches Cause in your Home?

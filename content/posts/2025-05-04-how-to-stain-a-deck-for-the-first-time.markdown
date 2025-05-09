@@ -1,4 +1,4 @@
----
+﻿---
 layout: post
 title: How to Stain a Deck for the First Time
 date: '2025-05-04T23:53:36+00:00'
