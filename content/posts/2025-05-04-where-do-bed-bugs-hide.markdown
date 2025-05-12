@@ -6,6 +6,7 @@ date: '2025-05-04T11:21:36+00:00'
 categories:
 - Bed Bugs
 - Guide
+- Fleas
 tags: []
 slug: /where-do-bed-bugs-hide/
 lastmod: 2025-05-07T12:21:29+03:00
