@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: "How Does\_Capstar\_Work? Flea Treatment"
 date: '2025-05-04T19:51:11+00:00'

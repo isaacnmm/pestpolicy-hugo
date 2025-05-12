@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: What Kills Fleas in the Yard Naturally?
 date: '2025-05-04T01:03:06+00:00'

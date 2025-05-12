@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Top 7 Best Raccoon Bait 2025 Reviewed
 date: '2025-05-04T00:34:30+00:00'

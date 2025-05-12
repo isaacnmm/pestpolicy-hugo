@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Get Paint off Laminate Floor
 date: '2025-05-04T10:56:54+00:00'

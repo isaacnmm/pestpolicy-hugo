@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 12 ft. vs-14 ft. Trampoline -The Ultimate Guide
 date: '2025-05-04T11:14:21+00:00'

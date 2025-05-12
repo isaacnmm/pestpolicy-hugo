@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Power Wheels for 2 Year Old in 2025 Reviewed
 date: '2025-05-04T23:52:39+00:00'

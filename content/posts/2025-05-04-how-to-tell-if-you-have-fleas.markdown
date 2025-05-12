@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Tell If You Have Fleas in Your House
 date: '2025-05-04T05:03:45+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Ant Killer for Yard 2025 Reviewed
 date: '2025-05-04T01:56:26+00:00'

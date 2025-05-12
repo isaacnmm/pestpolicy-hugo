@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Does Nail Polish Remover Remove Paint?
 date: '2025-05-04T04:16:12+00:00'

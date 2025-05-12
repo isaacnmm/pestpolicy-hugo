@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Bed Bug Control in Vancouver
 date: '2025-05-04T11:15:47+00:00'

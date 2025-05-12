@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How Long Does It Take To Break the Flea Life Cycle?
 date: '2025-05-04T20:39:52+00:00'

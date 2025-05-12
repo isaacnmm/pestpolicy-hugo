@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Motherboard for i5 6600k 2025 Reviewed
 date: '2025-05-04T08:03:57+00:00'

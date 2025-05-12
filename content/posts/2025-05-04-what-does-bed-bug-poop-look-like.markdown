@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: What Does Bed Bug Poop Look Like? 7 Tips
 date: '2025-05-04T03:10:48+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Pop Filter for Blue Yeti 2025
 date: '2025-05-04T19:58:45+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Does Garlic Kill Fleas On Cats?
 date: '2025-05-04T06:24:06+00:00'

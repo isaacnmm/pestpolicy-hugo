@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Rodent Control in Everett
 date: '2025-05-04T23:05:29+00:00'

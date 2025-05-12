@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Top 7 Best Zero Turn Mowers Reviewed
 date: '2025-05-04T02:01:12+00:00'

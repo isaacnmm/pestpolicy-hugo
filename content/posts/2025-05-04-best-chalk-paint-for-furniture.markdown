@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Chalk Paint for Furniture in 2025
 date: '2025-05-04T06:22:15+00:00'

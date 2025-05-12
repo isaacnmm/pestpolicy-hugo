@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Can Bearded Dragons Eat Grapes? 7 Secrets
 date: '2025-05-04T04:29:08+00:00'

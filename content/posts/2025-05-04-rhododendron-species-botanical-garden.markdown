@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Rhododendron Species Botanical Garden
 date: '2025-05-04T16:59:55+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Midi Keyboard for Ableton Live 2025
 date: '2025-05-04T10:57:15+00:00'

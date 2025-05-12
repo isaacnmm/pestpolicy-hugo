@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Treat Fleas in the Yard - 11 Tips
 date: '2025-05-04T12:57:19+00:00'

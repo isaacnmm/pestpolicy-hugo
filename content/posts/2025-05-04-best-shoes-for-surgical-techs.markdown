@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Shoes for Surgical Techs 2025 Reviewed
 date: '2025-05-04T11:20:25+00:00'

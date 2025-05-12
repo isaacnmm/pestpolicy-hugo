@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: "Difference Between a Bee and a Wasp\u2019s Nest"
 date: '2025-05-04T04:46:01+00:00'

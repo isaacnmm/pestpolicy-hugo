@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Best MIDI Keyboard Controller
 date: '2025-05-04T08:45:18+00:00'

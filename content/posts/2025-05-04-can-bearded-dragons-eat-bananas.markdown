@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Can Bearded Dragons Eat Bananas?? 7 Secrets
 date: '2025-05-04T19:07:03+00:00'

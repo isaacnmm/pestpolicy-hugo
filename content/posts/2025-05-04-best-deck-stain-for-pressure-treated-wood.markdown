@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Deck Stain for Pressure Treated Wood 2025
 date: '2025-05-04T00:35:48+00:00'

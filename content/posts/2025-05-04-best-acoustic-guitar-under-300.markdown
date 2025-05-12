@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 9 Best Acoustic Guitar Under 300 in 2025
 date: '2025-05-04T02:05:39+00:00'

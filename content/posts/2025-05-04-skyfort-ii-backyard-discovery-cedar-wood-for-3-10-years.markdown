@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: "Skyfort II Backyard Discovery \u2013 Cedar Wood for 3-10 years"
 date: '2025-05-04T03:47:55+00:00'

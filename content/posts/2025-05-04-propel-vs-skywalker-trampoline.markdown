@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Propel Vs. Skywalker Trampoline - Complete Guide 2025
 date: '2025-05-04T09:22:02+00:00'

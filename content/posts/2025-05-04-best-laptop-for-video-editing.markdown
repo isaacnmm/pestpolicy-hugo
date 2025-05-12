@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Laptop for Video Editing 2025
 date: '2025-05-04T23:52:17+00:00'

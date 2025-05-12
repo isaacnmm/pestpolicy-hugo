@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Does Diatomaceous Earth Kill Bed Bugs?
 date: '2025-05-04T06:27:36+00:00'

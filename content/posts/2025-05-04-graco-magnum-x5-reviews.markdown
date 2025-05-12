@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Graco Magnum X5 Reviews
 date: '2025-05-04T20:51:37+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How Do Portable Water Filters Work? 5 Tips
 date: '2025-05-04T16:14:54+00:00'

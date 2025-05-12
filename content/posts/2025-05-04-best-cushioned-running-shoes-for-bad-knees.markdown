@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Best Cushioned Running Shoes for Bad Knees
 date: '2025-05-04T14:46:53+00:00'

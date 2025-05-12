@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Get Rid of Spray Paint Smell
 date: '2025-05-04T03:45:17+00:00'

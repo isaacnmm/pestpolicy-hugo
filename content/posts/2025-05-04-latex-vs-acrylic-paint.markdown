@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Latex Vs Acrylic Paint - 7 Key Differences
 date: '2025-05-04T17:53:47+00:00'

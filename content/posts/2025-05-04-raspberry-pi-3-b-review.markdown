@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Raspberry Pi 3 B Review + Performance
 date: '2025-05-04T11:06:20+00:00'

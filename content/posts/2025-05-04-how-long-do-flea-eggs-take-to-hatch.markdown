@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How Long Do Flea Eggs Take To Hatch
 date: '2025-05-04T07:22:26+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Ant Control in Tacoma
 date: '2025-05-04T20:07:56+00:00'

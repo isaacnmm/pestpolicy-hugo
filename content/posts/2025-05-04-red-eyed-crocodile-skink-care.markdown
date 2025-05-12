@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Red Eyed Crocodile Skink Care - 7 Deep Facts
 date: '2025-05-04T02:13:27+00:00'

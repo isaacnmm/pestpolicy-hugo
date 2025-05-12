@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Do Spiders Have Brains?
 date: '2025-05-04T03:22:22+00:00'

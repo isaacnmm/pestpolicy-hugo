@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Acrylic Paint for Canvas in 2025
 date: '2025-05-04T22:55:19+00:00'

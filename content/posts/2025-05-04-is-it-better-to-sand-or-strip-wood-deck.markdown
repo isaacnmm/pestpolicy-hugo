@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Is It Better To Sand Or Strip Wood Deck?
 date: '2025-05-04T15:43:17+00:00'

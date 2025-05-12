@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Logitech Wireless f710 Gamepad 2025 Reviewed
 date: '2025-05-04T19:21:13+00:00'

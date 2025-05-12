@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Fogger for Fleas 2025 - Flea Bombs
 date: '2025-05-04T01:58:11+00:00'

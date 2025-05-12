@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: When Do Mosquitoes Come Out?
 date: '2025-05-04T21:48:35+00:00'

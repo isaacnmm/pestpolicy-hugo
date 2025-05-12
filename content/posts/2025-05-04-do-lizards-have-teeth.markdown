@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Do Lizards Have Teeth? - Reptile Dentition
 date: '2025-05-04T04:21:13+00:00'

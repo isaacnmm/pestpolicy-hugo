@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 20 Mule Team Borax Pest Control - Ants, Roaches
 date: '2025-05-04T04:15:17+00:00'

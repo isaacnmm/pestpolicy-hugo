@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Make Old Paint Usable Again
 date: '2025-05-04T23:30:28+00:00'

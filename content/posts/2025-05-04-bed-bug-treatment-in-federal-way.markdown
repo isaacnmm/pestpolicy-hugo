@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Bed Bug Treatment in Federal Way
 date: '2025-05-04T21:24:00+00:00'

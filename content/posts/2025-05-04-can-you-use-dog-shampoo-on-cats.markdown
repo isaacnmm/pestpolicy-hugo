@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Can You Use Dog Shampoo on Cats?
 date: '2025-05-04T23:51:24+00:00'

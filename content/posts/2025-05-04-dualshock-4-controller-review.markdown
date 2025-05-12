@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Dualshock 4 Controller Review 2025 Reviewed
 date: '2025-05-04T22:29:23+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Can I Use Baby Shampoo On My Cat?
 date: '2025-05-04T22:28:24+00:00'

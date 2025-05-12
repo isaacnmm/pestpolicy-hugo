@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: My Guide to 7 Best Flea Treatment for Cats
 date: '2025-05-04T11:27:27+00:00'

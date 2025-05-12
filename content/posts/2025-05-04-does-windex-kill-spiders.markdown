@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Does Windex Kill Spiders? A Surfactant?
 date: '2025-05-04T12:16:41+00:00'

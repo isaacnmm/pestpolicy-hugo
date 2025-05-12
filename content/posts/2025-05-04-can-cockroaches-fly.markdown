@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Can Cockroaches Fly? All Roaches deBugged
 date: '2025-05-04T03:38:38+00:00'

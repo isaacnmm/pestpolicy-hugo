@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Does Bug Spray Expire? Picaridin? Spectracide?
 date: '2025-05-04T23:43:17+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Headphones for Guitar Amps 2025
 date: '2025-05-04T06:04:37+00:00'

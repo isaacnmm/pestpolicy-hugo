@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Spectracide Bug Stop Fogger for Bed Bugs
 date: '2025-05-04T19:26:41+00:00'

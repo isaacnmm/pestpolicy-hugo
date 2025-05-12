@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 'Bed Bug Bites Vs Mosquito Bites: Telling Apart'
 date: '2025-05-04T06:28:29+00:00'

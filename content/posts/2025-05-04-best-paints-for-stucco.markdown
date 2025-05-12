@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Top 7 Best Paints for Stucco in 2025
 date: '2025-05-04T11:20:22+00:00'

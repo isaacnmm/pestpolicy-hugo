@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Non-Skid Paint for Aluminum Boats
 date: '2025-05-04T04:44:12+00:00'

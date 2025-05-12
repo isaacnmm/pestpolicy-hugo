@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Top 9 Best Bed Bug Spray 2025 Reviewed
 date: '2025-05-04T04:25:59+00:00'

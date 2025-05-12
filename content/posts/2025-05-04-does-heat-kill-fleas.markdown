@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Does Heat Kill Fleas?
 date: '2025-05-04T18:52:26+00:00'

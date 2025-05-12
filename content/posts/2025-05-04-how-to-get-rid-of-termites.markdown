@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Get Rid of Termites - Pest Control Tips
 date: '2025-05-04T11:29:16+00:00'

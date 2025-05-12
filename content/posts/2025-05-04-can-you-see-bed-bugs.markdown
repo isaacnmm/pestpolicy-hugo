@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Can You See Bed Bugs? Signs of Bed Bugs
 date: '2025-05-04T11:49:00+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Free Autotune vst Plugins 2025
 date: '2025-05-04T01:23:38+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Thin Oil Based Paint for Spray Gun
 date: '2025-05-04T02:52:12+00:00'

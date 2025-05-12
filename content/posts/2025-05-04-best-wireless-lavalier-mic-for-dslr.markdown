@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Wireless Lavalier Mic for DSLR 2025
 date: '2025-05-04T12:10:04+00:00'

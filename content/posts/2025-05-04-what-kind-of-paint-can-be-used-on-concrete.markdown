@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: What Kind of Paint Can Be Used on Concrete?
 date: '2025-05-04T07:49:08+00:00'

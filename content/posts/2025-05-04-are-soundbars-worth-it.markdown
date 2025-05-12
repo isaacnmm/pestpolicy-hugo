@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Are Soundbars Worth It? - 7 Key Tips
 date: '2025-05-04T10:23:27+00:00'

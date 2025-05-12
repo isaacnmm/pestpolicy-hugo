@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: The Ultimate Guide to Hikes around Seattle, Washington
 date: '2025-05-04T05:57:28+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: What Does a Garden Lizard Eat?
 date: '2025-05-04T14:57:54+00:00'

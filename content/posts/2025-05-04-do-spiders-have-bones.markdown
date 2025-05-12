@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Do Spiders Have Bones?? Exoskeleton?
 date: '2025-05-04T19:01:49+00:00'

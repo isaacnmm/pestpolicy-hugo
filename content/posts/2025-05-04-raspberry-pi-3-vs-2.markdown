@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Raspberry Pi 3 vs 2
 date: '2025-05-04T17:21:26+00:00'

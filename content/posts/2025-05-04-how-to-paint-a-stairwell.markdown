@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Paint a Stairwell
 date: '2025-05-04T12:42:47+00:00'

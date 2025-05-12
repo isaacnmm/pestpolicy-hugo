@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Carpenter Bee vs Bumblebee - Signs
 date: '2025-05-04T05:19:19+00:00'

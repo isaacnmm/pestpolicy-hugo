@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Orbiter Swing-N-Slide Swing Set
 date: '2025-05-04T22:06:40+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Why Do Crickets Stop Chirping When You Move?
 date: '2025-05-04T22:26:59+00:00'

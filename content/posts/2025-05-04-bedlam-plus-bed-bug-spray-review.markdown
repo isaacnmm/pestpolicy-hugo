@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Bedlam Plus Bed Bug Spray Review
 date: '2025-05-04T00:51:25+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: What Eats Bed Bugs? 7 Bed Bug Predators
 date: '2025-05-04T19:07:06+00:00'

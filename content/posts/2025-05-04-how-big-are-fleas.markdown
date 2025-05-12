@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How Big are Fleas? Size in Flea Life Cycle
 date: '2025-05-04T15:06:45+00:00'

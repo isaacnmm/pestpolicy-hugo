@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How Venomous is a Black Spider with White Dots?
 date: '2025-05-04T00:18:53+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Antifouling Paint for Fiberglass 2025
 date: '2025-05-04T11:04:13+00:00'

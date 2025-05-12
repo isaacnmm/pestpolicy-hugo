@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Find Bed Bugs - Identify Signs
 date: '2025-05-04T05:05:11+00:00'

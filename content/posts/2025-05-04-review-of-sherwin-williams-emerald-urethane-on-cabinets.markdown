@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Review of Sherwin Williams Emerald Urethane on Cabinets
 date: '2025-05-04T05:24:35+00:00'

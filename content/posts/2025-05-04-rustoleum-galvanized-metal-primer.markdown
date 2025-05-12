@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Rustoleum Galvanized Metal Primer
 date: '2025-05-04T01:12:54+00:00'

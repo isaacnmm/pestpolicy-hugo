@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Dress Shoes For Back Pain 2025
 date: '2025-05-04T02:05:16+00:00'

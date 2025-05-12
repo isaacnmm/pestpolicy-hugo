@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Wasp Nest Removal in Bellevue, WA
 date: '2025-05-04T02:56:53+00:00'

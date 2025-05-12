@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: What Can Kill Fleas Instantly?
 date: '2025-05-04T20:43:08+00:00'

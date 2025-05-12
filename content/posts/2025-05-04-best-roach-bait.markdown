@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Roach Baits to Eliminate Cockroaches for Good
 date: '2025-05-04T16:49:48+00:00'

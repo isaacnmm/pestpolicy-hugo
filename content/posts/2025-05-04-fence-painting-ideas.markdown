@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Fence Painting Ideas
 date: '2025-05-04T04:52:00+00:00'

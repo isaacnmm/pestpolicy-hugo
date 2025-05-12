@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Where Do Spiders Go in the Winter?
 date: '2025-05-04T07:37:55+00:00'

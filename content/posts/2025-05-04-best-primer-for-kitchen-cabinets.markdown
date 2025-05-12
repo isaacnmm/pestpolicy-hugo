@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Primer for Kitchen Cabinets 2025
 date: '2025-05-04T15:07:22+00:00'

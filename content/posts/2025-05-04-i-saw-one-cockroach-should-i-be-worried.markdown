@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: I Saw One Cockroach Should I Be Worried?
 date: '2025-05-04T18:05:32+00:00'

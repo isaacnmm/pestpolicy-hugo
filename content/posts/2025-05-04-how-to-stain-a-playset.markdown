@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Stain a Playset - 8 Simple Steps
 date: '2025-05-04T17:50:00+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Male Bed Bug vs Female Bed Bug (Compared)
 date: '2025-05-04T21:49:41+00:00'

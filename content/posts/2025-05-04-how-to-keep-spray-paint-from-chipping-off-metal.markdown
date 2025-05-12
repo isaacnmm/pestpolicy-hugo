@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Keep Spray Paint from Chipping off Metal
 date: '2025-05-04T13:59:28+00:00'

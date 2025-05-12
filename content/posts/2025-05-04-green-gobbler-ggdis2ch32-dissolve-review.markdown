@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Green Gobbler GGDIS2CH32 Dissolve Review
 date: '2025-05-04T06:44:15+00:00'

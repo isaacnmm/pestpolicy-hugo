@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Chalk Paint for Kitchen Cabinets 2025
 date: '2025-05-04T03:47:02+00:00'

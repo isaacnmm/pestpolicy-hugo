@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Get Rid of Bed Bug Bite Scars
 date: '2025-05-04T01:49:28+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Where Do Fleas Live? 7 Common Hiding Places?
 date: '2025-05-04T16:46:54+00:00'

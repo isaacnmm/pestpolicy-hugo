@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Shoes for Overweight Nurses 2025
 date: '2025-05-04T18:40:57+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Remove Paint from Metal with Baking Soda
 date: '2025-05-04T04:43:12+00:00'

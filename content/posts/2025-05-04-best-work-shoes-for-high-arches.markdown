@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Work Shoes for High Arches 2025 Reviewed
 date: '2025-05-04T15:54:06+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Do Fleas Have Wings? 9 FAQs for Fleas
 date: '2025-05-04T08:08:36+00:00'

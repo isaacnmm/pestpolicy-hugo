@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Diatomaceous Earth for Fleas on Dogs
 date: '2025-05-04T13:19:21+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: "Best Mini Trampoline for Heavy Adults: 300lbs \u2013 400lbs"
 date: '2025-05-04T03:19:00+00:00'

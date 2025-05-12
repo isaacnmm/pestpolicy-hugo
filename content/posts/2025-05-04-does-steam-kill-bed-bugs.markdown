@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Does Steam Kill Bed Bugs? - Check Details
 date: '2025-05-04T08:06:39+00:00'

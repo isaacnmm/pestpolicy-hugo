@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Rodent Control in Puyallup
 date: '2025-05-04T07:53:00+00:00'

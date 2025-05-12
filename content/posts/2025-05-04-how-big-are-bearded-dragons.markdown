@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How Big are Bearded Dragons?
 date: '2025-05-04T00:02:22+00:00'

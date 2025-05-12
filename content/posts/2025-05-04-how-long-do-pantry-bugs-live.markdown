@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How Long Do Pantry Bugs Live? Identification & Control
 date: '2025-05-04T04:42:29+00:00'

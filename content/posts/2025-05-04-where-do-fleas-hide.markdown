@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Where Do Fleas Hide? 7 Fleas' Hiding Spots
 date: '2025-05-04T13:40:12+00:00'

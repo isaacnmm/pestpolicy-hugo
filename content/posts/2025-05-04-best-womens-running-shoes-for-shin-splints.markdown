@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: "7 Best Women\u2019s Running Shoes for Shin Splints 2025"
 date: '2025-05-04T04:11:58+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Fun Backyard Flexible Flyer Swing Set
 date: '2025-05-04T00:35:02+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How Often Should You Repaint Interior Walls
 date: '2025-05-04T02:03:43+00:00'

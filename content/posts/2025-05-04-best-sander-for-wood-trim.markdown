@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Sander for Wood Trim in 2025
 date: '2025-05-04T21:15:51+00:00'

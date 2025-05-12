@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Revolution for Cats without Vet Prescription
 date: '2025-05-04T07:02:43+00:00'

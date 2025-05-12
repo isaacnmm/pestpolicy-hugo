@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Remove Paint from Clothes
 date: '2025-05-04T02:33:36+00:00'

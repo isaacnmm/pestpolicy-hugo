@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Automotive Paint for the Money 2025
 date: '2025-05-04T20:23:25+00:00'

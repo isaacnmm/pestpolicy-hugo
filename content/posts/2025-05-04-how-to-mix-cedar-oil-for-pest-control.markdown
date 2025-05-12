@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Mix Cedar Oil for Pest Control
 date: '2025-05-04T22:42:28+00:00'

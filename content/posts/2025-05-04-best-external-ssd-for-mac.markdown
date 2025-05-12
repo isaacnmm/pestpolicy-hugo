@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Best External SSD for Mac
 date: '2025-05-04T11:43:56+00:00'

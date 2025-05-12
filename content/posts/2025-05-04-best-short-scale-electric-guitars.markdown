@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Short Scale Electric Guitars 2025
 date: '2025-05-04T13:56:45+00:00'

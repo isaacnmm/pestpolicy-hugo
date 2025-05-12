@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Raccoon Facts (Very Detailed)
 date: '2025-05-04T10:59:20+00:00'

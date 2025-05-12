@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Reclining Sectional Sofas 2025 Reviewed
 date: '2025-05-04T11:06:45+00:00'

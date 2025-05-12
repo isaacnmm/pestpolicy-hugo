@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Does Goo Gone Remove Paint?
 date: '2025-05-04T00:14:37+00:00'

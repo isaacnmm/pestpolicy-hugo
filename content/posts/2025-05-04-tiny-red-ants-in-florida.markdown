@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Tiny Red Ants In Florida - Homeowners Seek Solutions
 date: '2025-05-04T11:49:43+00:00'

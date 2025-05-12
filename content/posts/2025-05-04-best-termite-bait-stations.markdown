@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Top 7 Best Termite Bait Stations 2025
 date: '2025-05-04T06:58:11+00:00'

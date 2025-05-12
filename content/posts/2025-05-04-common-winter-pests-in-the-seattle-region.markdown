@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Common Winter Pests in the Seattle Region
 date: '2025-05-04T08:20:44+00:00'

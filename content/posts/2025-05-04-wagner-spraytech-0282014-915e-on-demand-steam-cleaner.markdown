@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Wagner Spraytech 0282014 915e On-Demand Steam Cleaner
 date: '2025-05-04T23:48:09+00:00'

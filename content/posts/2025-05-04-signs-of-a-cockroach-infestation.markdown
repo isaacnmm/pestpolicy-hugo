@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Top 7 Signs of a Cockroach Infestation
 date: '2025-05-04T16:28:41+00:00'

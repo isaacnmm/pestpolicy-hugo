@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: "7 Best Raccoon Traps in 2025\_Reviewed"
 date: '2025-05-04T05:20:43+00:00'

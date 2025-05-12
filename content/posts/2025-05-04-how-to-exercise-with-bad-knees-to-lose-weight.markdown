@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Exercise With Bad Knees to Lose Weight
 date: '2025-05-04T06:31:27+00:00'

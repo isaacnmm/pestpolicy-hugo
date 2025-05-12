@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Absorbine UltraShield EX Insecticide Review
 date: '2025-05-04T19:33:35+00:00'

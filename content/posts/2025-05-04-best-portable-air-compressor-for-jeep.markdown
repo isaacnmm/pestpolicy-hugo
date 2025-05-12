@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 9 Best Portable Air Compressor for Jeep 2025
 date: '2025-05-04T10:49:43+00:00'

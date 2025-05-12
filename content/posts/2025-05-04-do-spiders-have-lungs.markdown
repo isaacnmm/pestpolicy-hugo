@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Do Spiders Have Lungs??
 date: '2025-05-04T16:18:01+00:00'

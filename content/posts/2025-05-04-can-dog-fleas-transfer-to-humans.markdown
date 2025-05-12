@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Can Dog Fleas Transfer to Humans?
 date: '2025-05-04T23:22:47+00:00'

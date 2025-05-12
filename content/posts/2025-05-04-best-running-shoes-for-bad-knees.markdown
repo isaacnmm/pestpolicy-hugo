@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Running Shoes For Bad Knees 2025 Reviewed
 date: '2025-05-04T07:28:14+00:00'

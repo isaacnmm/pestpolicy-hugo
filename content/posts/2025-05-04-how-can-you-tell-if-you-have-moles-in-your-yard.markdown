@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How Can You Tell If You Have Moles in Your Yard
 date: '2025-05-04T01:15:25+00:00'

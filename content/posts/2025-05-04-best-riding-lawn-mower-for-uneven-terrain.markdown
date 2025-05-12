@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Riding Lawn Mowers for Uneven Terrain 2025
 date: '2025-05-04T04:00:52+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Can You Paint Over Rust?
 date: '2025-05-04T15:28:27+00:00'

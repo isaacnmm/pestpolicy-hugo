@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Best Paint Strippers
 date: '2025-05-04T17:06:22+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Dump Carts For Lawn Tractors 2025
 date: '2025-05-04T20:49:54+00:00'

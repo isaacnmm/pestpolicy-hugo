@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Raid Ant Roach Killer Insecticide Spray Review
 date: '2025-05-04T06:20:26+00:00'

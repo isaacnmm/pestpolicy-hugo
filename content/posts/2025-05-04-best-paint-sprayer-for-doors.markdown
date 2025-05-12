@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Paint Sprayer for Doors in 2025
 date: '2025-05-04T07:23:02+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Self Propelled Lawn Mowers Under 300 2025
 date: '2025-05-04T18:27:21+00:00'

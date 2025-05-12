@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Remove Paint from Brick
 date: '2025-05-04T15:45:34+00:00'

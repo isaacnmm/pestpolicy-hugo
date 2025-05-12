@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Home Remedy for Termites
 date: '2025-05-04T14:02:27+00:00'

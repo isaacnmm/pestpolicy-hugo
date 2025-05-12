@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Keep Wasps Away from Playsets - 7 Tips
 date: '2025-05-04T08:13:27+00:00'

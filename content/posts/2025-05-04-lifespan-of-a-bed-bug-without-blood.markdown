@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Lifespan of a Bed Bug without Blood
 date: '2025-05-04T10:11:36+00:00'

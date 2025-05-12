@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Top 7 Best Fogger for Spiders 2025
 date: '2025-05-04T00:52:35+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Does Baking Acid Kill Crickets?
 date: '2025-05-04T16:46:12+00:00'

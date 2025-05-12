@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: What is a Dynamic Microphone?
 date: '2025-05-04T07:20:46+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Can Fleas Live in Carpets Fiber? or Rugs?
 date: '2025-05-04T05:34:50+00:00'

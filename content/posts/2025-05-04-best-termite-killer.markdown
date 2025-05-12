@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Termite Killers in 2025 Reviewed
 date: '2025-05-04T19:23:20+00:00'

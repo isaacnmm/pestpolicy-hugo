@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Can Bed Bugs Live in Carpet? (Control Guide)
 date: '2025-05-04T13:35:37+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How Long Do Fruit Flies Live?
 date: '2025-05-04T00:19:20+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Flea Bites vs. Bed Bug Bites- Differentiate?
 date: '2025-05-04T13:24:27+00:00'

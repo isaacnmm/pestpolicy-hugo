@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Medicine for Ear Mites Cats 2025 Reviewed
 date: '2025-05-04T06:37:29+00:00'

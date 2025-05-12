@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Trampoline Covers for Winter 2025 Reviewed
 date: '2025-05-04T19:16:13+00:00'

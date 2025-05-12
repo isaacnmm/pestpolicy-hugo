@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Removing Concrete Sealer with Muriatic Acid
 date: '2025-05-04T04:03:13+00:00'

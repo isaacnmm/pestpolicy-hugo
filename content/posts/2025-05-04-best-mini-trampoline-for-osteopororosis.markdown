@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Mini Trampoline for Osteoporosis 2025
 date: '2025-05-04T19:20:06+00:00'

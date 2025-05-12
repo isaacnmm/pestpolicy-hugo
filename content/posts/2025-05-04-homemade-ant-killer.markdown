@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Top 15 HomeMade Ant Killer Recipes
 date: '2025-05-04T16:35:13+00:00'

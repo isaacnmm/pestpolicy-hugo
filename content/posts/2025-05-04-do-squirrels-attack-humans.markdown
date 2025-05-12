@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Do Squirrels Attack Humans? How Often? Dangerous?
 date: '2025-05-04T07:29:55+00:00'

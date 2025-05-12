@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Baby Safe Paint for Crib in 2025
 date: '2025-05-04T04:21:52+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Bed Bug Treatment in Everett
 date: '2025-05-04T18:08:55+00:00'

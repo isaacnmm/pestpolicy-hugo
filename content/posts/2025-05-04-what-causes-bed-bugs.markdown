@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: What Causes Bed Bugs? Causes and Symptoms
 date: '2025-05-04T05:26:32+00:00'

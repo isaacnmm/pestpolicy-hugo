@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 'Scabies Vs. Bed Bugs: Identification & Treatment'
 date: '2025-05-04T11:30:45+00:00'

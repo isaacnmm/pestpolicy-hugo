@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: What Causes Pantry Bugs?
 date: '2025-05-04T05:53:54+00:00'

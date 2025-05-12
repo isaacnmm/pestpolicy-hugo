@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Power Wheels for 7 Year Old 2025 Reviewed
 date: '2025-05-04T06:56:23+00:00'

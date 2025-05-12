@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Weed Killers for Flower Beds Reviewed
 date: '2025-05-04T21:06:56+00:00'

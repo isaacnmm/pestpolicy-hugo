@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Shoes for Supination and Underpronation 2025 Reviewed
 date: '2025-05-04T21:17:49+00:00'

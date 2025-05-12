@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Remove Latex Paint from Concrete
 date: '2025-05-04T18:51:37+00:00'

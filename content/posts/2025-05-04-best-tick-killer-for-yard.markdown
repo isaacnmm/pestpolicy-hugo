@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Top 7 Best Tick Killer for Your Yard
 date: '2025-05-04T18:57:04+00:00'

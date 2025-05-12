@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Lawn Mower for Large Yard 2025
 date: '2025-05-04T10:15:39+00:00'

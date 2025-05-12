@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How Do I Clean and Maintain My Painting Shoes to Prolong their Lifespan?
 date: '2025-05-04T04:32:05+00:00'

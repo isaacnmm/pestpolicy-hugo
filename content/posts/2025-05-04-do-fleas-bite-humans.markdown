@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Do Fleas Bite Humans? Where? Flea Remedies
 date: '2025-05-04T06:17:16+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Top 7 Best Harmonica Microphones for 2025
 date: '2025-05-04T02:25:19+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Where Do Bed Bugs Hide? - Identify Bugs
 date: '2025-05-04T11:21:36+00:00'

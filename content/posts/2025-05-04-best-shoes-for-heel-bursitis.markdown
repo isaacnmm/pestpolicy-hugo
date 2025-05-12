@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Shoes for Heel Bursitis in 2025
 date: '2025-05-04T16:04:36+00:00'

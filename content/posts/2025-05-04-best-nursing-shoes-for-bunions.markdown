@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Nursing Shoes for Bunions 2025
 date: '2025-05-04T07:39:24+00:00'

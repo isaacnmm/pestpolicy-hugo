@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 5 Best Streaming Devices for Live TV 2025
 date: '2025-05-04T04:01:41+00:00'

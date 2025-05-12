@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Front Tine vs. Rear Tine Tillers
 date: '2025-05-04T20:08:49+00:00'

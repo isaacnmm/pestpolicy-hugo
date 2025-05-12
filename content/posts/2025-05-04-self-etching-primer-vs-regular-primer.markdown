@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Self-Etching Primer vs Regular Primer
 date: '2025-05-04T03:32:40+00:00'

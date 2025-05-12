@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Do Sugar Ants Bite?
 date: '2025-05-04T23:45:39+00:00'

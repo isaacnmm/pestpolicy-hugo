@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Top 7 Best Bed Bug Traps 2025 Reviewed
 date: '2025-05-04T15:36:14+00:00'

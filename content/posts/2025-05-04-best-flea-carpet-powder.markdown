@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Flea Carpet Powders - Flea-Free Home 2025
 date: '2025-05-04T20:11:30+00:00'

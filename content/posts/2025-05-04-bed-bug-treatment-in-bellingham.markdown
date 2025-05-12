@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Bed Bug Treatment in Bellingham
 date: '2025-05-04T14:42:18+00:00'

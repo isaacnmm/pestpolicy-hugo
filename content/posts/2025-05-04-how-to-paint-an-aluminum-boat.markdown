@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Paint an Aluminum Boat
 date: '2025-05-04T19:15:04+00:00'

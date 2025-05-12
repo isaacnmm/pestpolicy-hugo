@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Top 7 Best Flea Spray for House Carpets Reviewed
 date: '2025-05-04T05:58:37+00:00'

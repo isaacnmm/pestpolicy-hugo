@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How Much Does It Cost To Paint Kitchen Cabinets
 date: '2025-05-04T23:23:16+00:00'

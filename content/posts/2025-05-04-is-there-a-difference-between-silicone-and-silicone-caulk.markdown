@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Is There A Difference Between Silicone And Silicone Caulk?
 date: '2025-05-04T17:16:00+00:00'

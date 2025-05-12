@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Refinish a Deck
 date: '2025-05-04T01:12:52+00:00'

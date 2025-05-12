@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Can You Drown a Spider? Flush Water Death?
 date: '2025-05-04T00:32:59+00:00'

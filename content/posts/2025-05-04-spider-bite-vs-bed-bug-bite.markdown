@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 'Spider Bite Vs Bed Bug Bite: Top 7 Difference?'
 date: '2025-05-04T11:00:55+00:00'

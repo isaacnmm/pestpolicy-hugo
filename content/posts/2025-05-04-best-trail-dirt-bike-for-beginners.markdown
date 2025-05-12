@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Trail Dirt Bike for Beginners 2025
 date: '2025-05-04T18:24:15+00:00'

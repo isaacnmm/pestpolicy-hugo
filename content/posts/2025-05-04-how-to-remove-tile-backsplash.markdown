@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Remove Tile Backsplash like a Pro!
 date: '2025-05-04T07:03:52+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How To Use An HVLP Paint Sprayer
 date: '2025-05-04T16:44:30+00:00'

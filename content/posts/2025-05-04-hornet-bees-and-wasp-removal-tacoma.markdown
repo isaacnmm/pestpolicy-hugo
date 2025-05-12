@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Hornet, Bees and Wasp  Removal Tacoma
 date: '2025-05-04T14:29:29+00:00'

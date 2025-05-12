@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Paint Sprayer for Exterior Walls 2025
 date: '2025-05-04T16:48:11+00:00'

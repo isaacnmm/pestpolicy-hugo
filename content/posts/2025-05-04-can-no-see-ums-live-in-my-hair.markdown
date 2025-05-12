@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Can No-See-Ums Live in My Hair?
 date: '2025-05-04T01:04:36+00:00'

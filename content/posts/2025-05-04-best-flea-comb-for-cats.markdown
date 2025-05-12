@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Flea Combs for Cats in 2025 Reviewed
 date: '2025-05-04T17:17:50+00:00'

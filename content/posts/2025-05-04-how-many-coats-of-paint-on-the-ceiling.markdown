@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How Many Coats of Paint on the Ceiling?
 date: '2025-05-04T16:08:40+00:00'

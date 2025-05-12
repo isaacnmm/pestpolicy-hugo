@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Clean a Paint Sprayer
 date: '2025-05-04T03:21:31+00:00'

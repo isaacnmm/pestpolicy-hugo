@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Boat Bottom Paint for Speed in 2025
 date: '2025-05-04T07:06:52+00:00'

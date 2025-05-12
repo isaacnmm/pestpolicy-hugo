@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Top 7 Best Mosquito Killer Reviewed
 date: '2025-05-04T01:07:20+00:00'

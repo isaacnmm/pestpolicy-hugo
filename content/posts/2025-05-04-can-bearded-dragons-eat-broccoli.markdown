@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Can Bearded Dragons Eat Broccoli? 7 Tips
 date: '2025-05-04T05:54:44+00:00'

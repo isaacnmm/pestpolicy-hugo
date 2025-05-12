@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Getting Rid of Fleas in the Carpet
 date: '2025-05-04T02:39:30+00:00'

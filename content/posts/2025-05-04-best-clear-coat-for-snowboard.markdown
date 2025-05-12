@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Clear Coat for Snowboard in 2025
 date: '2025-05-04T14:28:27+00:00'

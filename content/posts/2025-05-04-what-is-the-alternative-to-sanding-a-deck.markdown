@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: What Is The Alternative To Sanding A Deck?
 date: '2025-05-04T01:58:25+00:00'

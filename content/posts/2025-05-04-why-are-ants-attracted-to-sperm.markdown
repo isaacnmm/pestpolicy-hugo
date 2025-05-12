@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: posts
 title: Why Are Ants Attracted to Sperm?
 date: '2025-05-04T14:22:04+00:00'

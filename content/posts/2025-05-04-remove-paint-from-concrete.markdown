@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Remove Paint From Concrete
 date: '2025-05-04T11:51:52+00:00'

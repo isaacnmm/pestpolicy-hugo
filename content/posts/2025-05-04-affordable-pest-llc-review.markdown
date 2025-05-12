@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Affordable Pest LLC Review - Request an Estimate
 date: '2025-05-04T16:06:42+00:00'

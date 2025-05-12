@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Does Lysol Kill Bed Bugs and Their Eggs?
 date: '2025-05-04T11:40:36+00:00'

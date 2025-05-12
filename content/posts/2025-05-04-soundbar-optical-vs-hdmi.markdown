@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Soundbar Optical Vs HDMI - 7 Differences?
 date: '2025-05-04T14:42:39+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: What Do Chameleon Colors Mean?
 date: '2025-05-04T19:57:08+00:00'

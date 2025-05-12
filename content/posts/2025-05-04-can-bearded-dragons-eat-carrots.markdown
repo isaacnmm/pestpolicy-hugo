@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Can Bearded Dragons Eat Carrots? 7 Secrets
 date: '2025-05-04T00:54:26+00:00'

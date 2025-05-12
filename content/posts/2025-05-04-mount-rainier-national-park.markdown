@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Mount Rainier National Park
 date: '2025-05-04T15:17:46+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Terrariums for Snakes 2025 Reviewed
 date: '2025-05-04T14:05:18+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Does Lambda Cyhalothrin Kill Fleas?
 date: '2025-05-04T16:43:29+00:00'

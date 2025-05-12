@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Can Wasps Sting More Than Once?
 date: '2025-05-04T16:34:15+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Do Flying Termites Eat Wood?
 date: '2025-05-04T19:04:40+00:00'

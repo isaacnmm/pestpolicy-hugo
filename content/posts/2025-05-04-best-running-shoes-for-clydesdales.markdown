@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Running Shoes for Clydesdales 2025
 date: '2025-05-04T15:32:31+00:00'

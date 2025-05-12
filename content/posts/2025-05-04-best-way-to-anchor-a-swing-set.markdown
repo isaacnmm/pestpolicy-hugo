@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Best Way to Anchor a Swing Set in 2025 Reviewed
 date: '2025-05-04T17:22:54+00:00'

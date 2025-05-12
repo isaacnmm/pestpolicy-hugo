@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: What Should I Feed My Bearded Dragon?
 date: '2025-05-04T05:26:11+00:00'

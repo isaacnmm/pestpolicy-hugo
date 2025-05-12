@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: "Capstar Flea Tablets\_for Large Dogs"
 date: '2025-05-04T05:05:20+00:00'

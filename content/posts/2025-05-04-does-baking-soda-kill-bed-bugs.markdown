@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Does Baking Soda Kill Bed Bugs?
 date: '2025-05-04T08:50:00+00:00'

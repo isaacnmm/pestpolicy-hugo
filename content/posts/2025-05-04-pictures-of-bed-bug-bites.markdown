@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Pictures of Bed Bug Bites? Stings, Allergies?
 date: '2025-05-04T06:28:27+00:00'

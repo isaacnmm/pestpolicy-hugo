@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Effective Rodent Control in Eugene, OR
 date: '2025-05-04T07:41:11+00:00'

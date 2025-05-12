@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Acrylic Paint for Pouring in 2025
 date: '2025-05-04T07:05:24+00:00'

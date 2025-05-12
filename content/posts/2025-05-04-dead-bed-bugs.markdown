@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Dead Bed Bugs - What Should You Do Now?
 date: '2025-05-04T05:12:28+00:00'

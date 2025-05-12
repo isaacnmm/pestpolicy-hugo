@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Cordless Hedge Trimmer 2025
 date: '2025-05-04T12:16:28+00:00'

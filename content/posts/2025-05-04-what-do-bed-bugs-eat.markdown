@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: What Do Bed Bugs Eat?
 date: '2025-05-04T00:45:35+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Wasp Nest Removal in Federal Way
 date: '2025-05-04T15:12:56+00:00'

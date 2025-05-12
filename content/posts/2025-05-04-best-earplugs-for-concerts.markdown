@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 9 Best Earplugs for Concerts 2025
 date: '2025-05-04T11:39:11+00:00'

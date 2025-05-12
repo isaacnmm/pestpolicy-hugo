@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Bass Octave Pedals 2025
 date: '2025-05-04T08:40:55+00:00'

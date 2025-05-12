@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Are Crickets Herbivores or Omnivores?
 date: '2025-05-04T08:30:42+00:00'

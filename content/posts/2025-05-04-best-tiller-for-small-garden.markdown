@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 9 Best Tiller for Small Garden 2025 Reviewed
 date: '2025-05-04T10:44:36+00:00'

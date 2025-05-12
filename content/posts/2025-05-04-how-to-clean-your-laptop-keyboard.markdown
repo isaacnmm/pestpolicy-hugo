@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Clean Your Laptop Keyboard
 date: '2025-05-04T03:07:20+00:00'

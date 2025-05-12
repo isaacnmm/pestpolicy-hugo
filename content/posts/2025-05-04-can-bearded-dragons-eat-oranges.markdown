@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Can Bearded Dragons Eat Oranges? 7 Tips
 date: '2025-05-04T15:46:38+00:00'

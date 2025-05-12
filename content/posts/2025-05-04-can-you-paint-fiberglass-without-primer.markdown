@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Can You Paint Fiberglass Without Primer?
 date: '2025-05-04T12:31:41+00:00'

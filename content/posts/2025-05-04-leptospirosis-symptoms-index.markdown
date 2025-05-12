@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Leptospirosis Symptoms Index
 date: '2025-05-04T07:46:57+00:00'

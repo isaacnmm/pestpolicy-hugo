@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 'Bed Bugs vs. Ants (Tell Apart): 7 Key Facts'
 date: '2025-05-04T15:00:39+00:00'

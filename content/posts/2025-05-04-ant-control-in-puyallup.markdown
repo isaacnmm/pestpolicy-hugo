@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Ant Control in Puyallup
 date: '2025-05-04T12:02:48+00:00'

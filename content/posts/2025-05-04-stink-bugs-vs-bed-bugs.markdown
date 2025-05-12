@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Stink Bugs Vs. Bed Bugs Expert Comparison
 date: '2025-05-04T22:11:48+00:00'

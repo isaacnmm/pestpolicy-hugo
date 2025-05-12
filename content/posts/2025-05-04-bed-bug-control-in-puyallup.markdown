@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Bed Bug Control in Puyallup
 date: '2025-05-04T04:18:34+00:00'

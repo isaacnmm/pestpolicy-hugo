@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Wet and Forgets
 date: '2025-05-04T01:56:18+00:00'

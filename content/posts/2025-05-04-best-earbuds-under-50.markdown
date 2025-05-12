@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 9 Best Earbuds Under 50 in 2025
 date: '2025-05-04T01:05:20+00:00'

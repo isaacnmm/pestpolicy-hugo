@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: View Pictures of Bed Bugs in all Life Stages
 date: '2025-05-04T19:27:45+00:00'

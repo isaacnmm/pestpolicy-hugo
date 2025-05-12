@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Bed Bug Life Cycle - Life Stages of Bed Bugs?
 date: '2025-05-04T01:50:41+00:00'

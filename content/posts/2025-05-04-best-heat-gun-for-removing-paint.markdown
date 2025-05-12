@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Heat Gun for Removing Paint in 2025
 date: '2025-05-04T18:24:31+00:00'

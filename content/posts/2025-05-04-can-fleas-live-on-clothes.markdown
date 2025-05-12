@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Can Fleas Live on Clothes? Fleas and Flea Bites
 date: '2025-05-04T11:19:35+00:00'

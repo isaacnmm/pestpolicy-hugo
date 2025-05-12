@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 9 Best Zero Turn Mower for Rough Terrain 2025
 date: '2025-05-04T06:32:00+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Spray Paint for Glass in 2025
 date: '2025-05-04T01:10:06+00:00'

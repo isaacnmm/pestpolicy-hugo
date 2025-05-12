@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 'Zupapa vs Skywalker Trampoline: Complete Guide'
 date: '2025-05-04T09:12:16+00:00'

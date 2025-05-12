@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 'Do Chipmunks Live Underground?: The Answer'
 date: '2025-05-04T03:56:51+00:00'

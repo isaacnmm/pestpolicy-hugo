@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: What Smells Do Raccoons Hate?
 date: '2025-05-04T04:31:28+00:00'

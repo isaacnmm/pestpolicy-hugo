@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Top 7 Best Soundbar Under 200 in 2025
 date: '2025-05-04T06:56:53+00:00'

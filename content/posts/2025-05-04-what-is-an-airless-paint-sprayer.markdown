@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: What is an Airless Paint Sprayer?
 date: '2025-05-04T13:43:52+00:00'

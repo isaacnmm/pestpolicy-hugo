@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Does Dryer Kill Bed Bugs? Laundering Items
 date: '2025-05-04T03:58:35+00:00'

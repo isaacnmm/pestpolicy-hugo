@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Xbox One Elite Controller Review 2025 Reviewed
 date: '2025-05-04T04:08:26+00:00'

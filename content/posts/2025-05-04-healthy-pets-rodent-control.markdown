@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 'Healthy Pets: Rodent Control'
 date: '2025-05-04T13:57:32+00:00'

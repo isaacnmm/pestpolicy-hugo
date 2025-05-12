@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Water Tables For 1 Year Old 2025 Reviewed
 date: '2025-05-04T02:41:13+00:00'

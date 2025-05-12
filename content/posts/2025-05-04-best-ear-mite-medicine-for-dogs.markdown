@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 9 Best Ear Mite Medicine for Dogs 2025
 date: '2025-05-04T14:08:51+00:00'

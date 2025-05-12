@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: House Painting Designs and Colors
 date: '2025-05-04T01:59:12+00:00'

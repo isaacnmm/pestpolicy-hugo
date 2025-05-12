@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Do Opossums Carry Rabies - 7 Quick Facts
 date: '2025-05-04T16:54:07+00:00'

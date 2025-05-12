@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: When to Use a Cockroach Bomb? 7 Tips
 date: '2025-05-04T08:13:46+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Shoes for Box Jumps 2025
 date: '2025-05-04T08:11:48+00:00'

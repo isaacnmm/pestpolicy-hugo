@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Select a Wireless Driveway Alarm
 date: '2025-05-04T16:02:10+00:00'

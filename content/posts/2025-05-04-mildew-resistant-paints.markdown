@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Mildew Resistant Paints in 2025
 date: '2025-05-04T12:21:02+00:00'

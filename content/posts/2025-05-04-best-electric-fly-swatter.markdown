@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Top 7 Best Electric Fly Swatter Reviewed
 date: '2025-05-04T19:06:06+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Belt Sander for Deck 2025
 date: '2025-05-04T21:46:12+00:00'

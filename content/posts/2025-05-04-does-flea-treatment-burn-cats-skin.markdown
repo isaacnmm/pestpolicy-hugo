@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Does Flea Treatment Burn Cats Skin?
 date: '2025-05-04T12:51:11+00:00'

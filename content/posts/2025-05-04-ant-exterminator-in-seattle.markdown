@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Ant Exterminator in Seattle
 date: '2025-05-04T01:17:12+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Deck Cleaner for Trex in 2025
 date: '2025-05-04T22:46:26+00:00'

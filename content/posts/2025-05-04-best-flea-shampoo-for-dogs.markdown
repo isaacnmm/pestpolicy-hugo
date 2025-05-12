@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Flea Shampoo for Dogs - Buying Guide
 date: '2025-05-04T14:23:14+00:00'

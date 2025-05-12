@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Steam Controller Review for 2025
 date: '2025-05-04T16:51:33+00:00'

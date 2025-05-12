@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Do Spiders Poop? Spider Feces?
 date: '2025-05-04T04:51:56+00:00'

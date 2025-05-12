@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Controller for Rocket League 2025 Reviewed
 date: '2025-05-04T19:46:18+00:00'

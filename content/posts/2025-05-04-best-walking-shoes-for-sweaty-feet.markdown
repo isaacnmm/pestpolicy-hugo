@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Walking Shoes for Sweaty Feet in 2025
 date: '2025-05-04T20:01:14+00:00'

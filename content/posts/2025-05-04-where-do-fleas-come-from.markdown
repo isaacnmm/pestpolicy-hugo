@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Where do Fleas Come From? 7 Places
 date: '2025-05-04T08:32:47+00:00'

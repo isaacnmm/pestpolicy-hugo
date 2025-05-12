@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How Do Fleas Mate? How Fleas Breed
 date: '2025-05-04T11:44:22+00:00'

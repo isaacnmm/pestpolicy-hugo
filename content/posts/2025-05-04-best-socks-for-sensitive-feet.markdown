@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Socks for Sensitive Feet in 2025 Reviewed
 date: '2025-05-04T04:09:31+00:00'

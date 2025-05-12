@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: "7 Best Women\u2019s Running Shoes for Bad Knees 2025"
 date: '2025-05-04T02:12:15+00:00'

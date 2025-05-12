@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Discover Whatcom Falls Park
 date: '2025-05-04T19:28:33+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Top 5 Best Rat and Mice Poisons Reviewed
 date: '2025-05-04T04:09:20+00:00'

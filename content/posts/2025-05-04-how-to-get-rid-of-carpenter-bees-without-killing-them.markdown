@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Get Rid Of Carpenter Bees without Killing Them
 date: '2025-05-04T19:43:33+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Lawn Mowers for Wet Grass 2025
 date: '2025-05-04T15:12:34+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Ant Control in Vancouver
 date: '2025-05-04T21:11:55+00:00'

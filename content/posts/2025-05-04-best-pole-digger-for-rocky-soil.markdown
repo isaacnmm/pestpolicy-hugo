@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 9 Best Pole Digger for Rocky Soil 2025
 date: '2025-05-04T22:14:18+00:00'

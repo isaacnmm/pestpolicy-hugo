@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Snake a Drain (Quick Unclogging)
 date: '2025-05-04T02:25:55+00:00'

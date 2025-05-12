@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Can I Sand My Deck By Hand?
 date: '2025-05-04T06:40:38+00:00'

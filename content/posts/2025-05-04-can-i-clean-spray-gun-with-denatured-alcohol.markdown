@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Can I Clean Spray Gun With Denatured Alcohol?
 date: '2025-05-04T02:19:49+00:00'

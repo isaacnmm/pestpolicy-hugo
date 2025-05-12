@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Best Vacuums for Bed Bugs
 date: '2025-05-04T21:54:09+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 5 Best Poison for Mouse 2025 Reviewed
 date: '2025-05-04T04:13:51+00:00'

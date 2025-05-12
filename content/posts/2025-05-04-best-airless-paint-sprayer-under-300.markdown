@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Airless Paint Sprayer Under 300 in 2025
 date: '2025-05-04T01:54:53+00:00'

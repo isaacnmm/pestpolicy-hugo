@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Jordan Bartee at the CalArts Machine Lab
 date: '2025-05-04T21:53:59+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: What Happens If You Don't Paint Over Primer
 date: '2025-05-04T13:19:45+00:00'

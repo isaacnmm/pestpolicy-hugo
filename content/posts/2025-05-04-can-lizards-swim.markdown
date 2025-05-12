@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Can Lizards Swim? Can they Drown?
 date: '2025-05-04T21:41:37+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 'Rodents in the Spring: What You Need To Know'
 date: '2025-05-04T16:53:49+00:00'

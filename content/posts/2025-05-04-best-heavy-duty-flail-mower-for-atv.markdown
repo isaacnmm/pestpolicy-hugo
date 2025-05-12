@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Heavy Duty Flail Mower for ATV 2025
 date: '2025-05-04T02:17:54+00:00'

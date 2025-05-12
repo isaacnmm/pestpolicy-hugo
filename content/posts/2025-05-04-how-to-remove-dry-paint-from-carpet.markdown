@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Remove Dry Paint from Carpet
 date: '2025-05-04T23:20:56+00:00'

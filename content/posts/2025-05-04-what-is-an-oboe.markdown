@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: What is an oboe?
 date: '2025-05-04T07:34:23+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 'Black Widow Spiders: Facts, Identification & Bite'
 date: '2025-05-04T06:54:15+00:00'

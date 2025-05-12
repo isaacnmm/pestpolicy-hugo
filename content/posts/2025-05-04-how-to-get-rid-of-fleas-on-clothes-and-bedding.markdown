@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Get Rid Of Fleas on Clothes and Bedding
 date: '2025-05-04T05:59:31+00:00'

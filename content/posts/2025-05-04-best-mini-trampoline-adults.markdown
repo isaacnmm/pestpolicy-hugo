@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Mini Trampoline for Adults in 2025 Reviewed
 date: '2025-05-04T03:18:24+00:00'

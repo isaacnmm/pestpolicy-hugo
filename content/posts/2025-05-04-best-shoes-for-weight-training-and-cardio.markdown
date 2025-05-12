@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Shoes for Weight Training and Cardio 2025
 date: '2025-05-04T05:07:25+00:00'

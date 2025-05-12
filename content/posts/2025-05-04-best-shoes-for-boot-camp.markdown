@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Shoes for Boot Camp in 2025
 date: '2025-05-04T05:33:22+00:00'

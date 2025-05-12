@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Can Bearded Dragons Eat Mango? 7 Secrets
 date: '2025-05-04T06:48:13+00:00'

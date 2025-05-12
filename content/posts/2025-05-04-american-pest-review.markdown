@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: American Pest Control Review in 2025
 date: '2025-05-04T23:02:08+00:00'

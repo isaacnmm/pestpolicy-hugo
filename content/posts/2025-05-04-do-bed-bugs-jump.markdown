@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Do Bed Bugs Jump? - Bedbug Movement
 date: '2025-05-04T20:50:28+00:00'

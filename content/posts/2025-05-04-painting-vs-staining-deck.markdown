@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Painting Vs Staining Deck - 7 Differences
 date: '2025-05-04T19:02:18+00:00'

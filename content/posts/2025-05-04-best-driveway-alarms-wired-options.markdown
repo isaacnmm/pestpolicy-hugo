@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Driveway Alarms 2025 Reviewed
 date: '2025-05-04T22:27:42+00:00'

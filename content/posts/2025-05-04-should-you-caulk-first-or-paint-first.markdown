@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Should You Caulk First Or Paint First?
 date: '2025-05-04T06:53:31+00:00'

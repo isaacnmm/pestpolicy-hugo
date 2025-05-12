@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Are Plug in Mosquito Repellents Safe?
 date: '2025-05-04T19:06:05+00:00'

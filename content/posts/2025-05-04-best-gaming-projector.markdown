@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Gaming Projector in 2025 Reviewed
 date: '2025-05-04T20:19:53+00:00'

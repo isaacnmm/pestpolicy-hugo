@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How Do You Keep Horse Flies Away Naturally?
 date: '2025-05-04T14:18:14+00:00'

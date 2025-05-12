@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: "Can Bed Bugs Bite through \u200BClothing?"
 date: '2025-05-04T02:47:16+00:00'

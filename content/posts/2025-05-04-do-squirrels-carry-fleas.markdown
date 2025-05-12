@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Do Squirrels Carry Fleas?
 date: '2025-05-04T01:17:01+00:00'

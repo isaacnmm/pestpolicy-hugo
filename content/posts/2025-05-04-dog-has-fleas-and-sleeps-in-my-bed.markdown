@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Dog Has Fleas and Sleeps in My Bed
 date: '2025-05-04T07:03:34+00:00'

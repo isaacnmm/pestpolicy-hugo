@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Mini Trampoline for Lymphatic Drainage 2025 Reviewed
 date: '2025-05-04T05:47:17+00:00'

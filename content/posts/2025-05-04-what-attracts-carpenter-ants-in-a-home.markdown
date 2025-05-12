@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: What Attracts Carpenter Ants In A Home?
 date: '2025-05-04T11:18:46+00:00'

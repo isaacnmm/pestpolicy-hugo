@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 5 Best 4 Wheeler For 12 Year Old 2025 Reviewed
 date: '2025-05-04T18:05:40+00:00'

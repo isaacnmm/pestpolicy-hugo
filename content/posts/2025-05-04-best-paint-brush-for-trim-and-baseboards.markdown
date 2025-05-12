@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Paint Brush for Trim and Baseboards 2025
 date: '2025-05-04T16:58:07+00:00'

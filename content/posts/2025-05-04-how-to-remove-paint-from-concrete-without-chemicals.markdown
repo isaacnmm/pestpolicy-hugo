@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Remove Paint from Concrete without Chemicals
 date: '2025-05-04T18:35:25+00:00'

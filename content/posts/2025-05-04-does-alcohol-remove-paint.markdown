@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Does Alcohol Remove Paint?
 date: '2025-05-04T15:45:58+00:00'

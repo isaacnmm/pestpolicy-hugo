@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How To Paint Stucco -The Correct Way
 date: '2025-05-04T04:37:39+00:00'

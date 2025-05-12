@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Do Mosquito Bracelets Work?
 date: '2025-05-04T12:30:29+00:00'

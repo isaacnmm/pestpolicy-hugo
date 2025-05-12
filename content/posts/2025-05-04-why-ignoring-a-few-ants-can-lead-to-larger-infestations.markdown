@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Why Ignoring a Few Ants Can Lead to Larger Infestations
 date: '2025-05-04T21:00:32+00:00'

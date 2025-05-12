@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Remove Soot from Walls
 date: '2025-05-04T03:37:32+00:00'

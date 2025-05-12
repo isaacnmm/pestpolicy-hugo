@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: What is blep in pets Cats and dogs
 date: '2025-05-04T16:51:20+00:00'

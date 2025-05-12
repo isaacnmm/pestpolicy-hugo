@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How Long Does It Take For Steam to Kill Fleas
 date: '2025-05-04T01:16:07+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Wall Paint Design Ideas with Tape
 date: '2025-05-04T14:30:24+00:00'

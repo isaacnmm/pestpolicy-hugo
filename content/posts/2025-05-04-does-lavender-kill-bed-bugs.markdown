@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Does Lavender Kill Bed Bugs? Bug Removal
 date: '2025-05-04T18:51:32+00:00'

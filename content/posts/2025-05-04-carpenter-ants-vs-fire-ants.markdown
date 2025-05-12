@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 'Carpenter Ants vs Fire Ants: 7 Key Differences'
 date: '2025-05-04T15:52:05+00:00'

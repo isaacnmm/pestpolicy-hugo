@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Winterizing Trampoline Important Tips
 date: '2025-05-04T15:55:51+00:00'

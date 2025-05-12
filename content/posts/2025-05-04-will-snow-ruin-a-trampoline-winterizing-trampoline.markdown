@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Will Snow Ruin a Trampoline?
 date: '2025-05-04T13:19:39+00:00'

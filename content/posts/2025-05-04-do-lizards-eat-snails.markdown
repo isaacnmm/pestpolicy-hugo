@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Do Lizards Eat Snails?
 date: '2025-05-04T06:09:51+00:00'

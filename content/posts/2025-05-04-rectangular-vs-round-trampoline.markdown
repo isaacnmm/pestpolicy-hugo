@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 'Rectangular Vs. Round Trampoline: Complete Guide'
 date: '2025-05-04T21:40:03+00:00'

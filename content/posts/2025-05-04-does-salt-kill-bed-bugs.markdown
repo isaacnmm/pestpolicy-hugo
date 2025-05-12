@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Does Salt Kill Bed Bugs? 7 Critical Bed Bug FAQs
 date: '2025-05-04T01:07:02+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Famous Female Painters of the 21st Century
 date: '2025-05-04T12:57:07+00:00'

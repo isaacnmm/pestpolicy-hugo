@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Do Fleas Have Antennae?
 date: '2025-05-04T17:51:11+00:00'

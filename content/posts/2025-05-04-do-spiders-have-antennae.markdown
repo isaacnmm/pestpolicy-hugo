@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Do Spiders Have Antennae??
 date: '2025-05-04T02:44:37+00:00'

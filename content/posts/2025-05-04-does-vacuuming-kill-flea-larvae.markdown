@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Does Vacuuming Kill Flea Larvae?
 date: '2025-05-04T05:43:28+00:00'

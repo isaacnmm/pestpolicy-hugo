@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Get Rid Of Drain Flies in Septic Tank
 date: '2025-05-04T00:50:41+00:00'

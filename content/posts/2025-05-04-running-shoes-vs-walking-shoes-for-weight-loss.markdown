@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Running Shoes vs. Walking Shoes for Weight Loss
 date: '2025-05-04T13:16:52+00:00'

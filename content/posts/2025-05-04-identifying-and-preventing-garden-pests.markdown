@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Identifying and Preventing Garden Pests
 date: '2025-05-04T10:28:52+00:00'

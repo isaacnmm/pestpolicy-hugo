@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Paint Over Non Paintable Caulk
 date: '2025-05-04T03:41:47+00:00'

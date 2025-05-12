@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Are Fleas Attracted to Heat?
 date: '2025-05-04T10:47:40+00:00'

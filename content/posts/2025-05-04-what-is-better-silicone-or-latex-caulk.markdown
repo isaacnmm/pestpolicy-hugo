@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: What Is Better Silicone Or Latex Caulk?
 date: '2025-05-04T11:27:24+00:00'

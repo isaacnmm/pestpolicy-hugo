@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How Much Do Bed Bug Exterminators Cost?
 date: '2025-05-04T18:52:18+00:00'

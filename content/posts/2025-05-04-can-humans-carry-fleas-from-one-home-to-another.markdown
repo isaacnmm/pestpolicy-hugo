@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Can Humans Carry Fleas from One Home to Another?
 date: '2025-05-04T02:21:58+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 9 Best Spider Spray for Indoors 2025
 date: '2025-05-04T11:20:06+00:00'

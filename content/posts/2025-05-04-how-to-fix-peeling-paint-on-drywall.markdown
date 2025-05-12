@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Fix Peeling Paint on Drywall
 date: '2025-05-04T13:24:25+00:00'

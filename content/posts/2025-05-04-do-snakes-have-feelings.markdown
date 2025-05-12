@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Do Snakes Have Feelings?
 date: '2025-05-04T02:22:58+00:00'

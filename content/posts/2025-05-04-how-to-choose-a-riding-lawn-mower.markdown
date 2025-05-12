@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Choose a Riding Lawn Mower
 date: '2025-05-04T06:37:12+00:00'

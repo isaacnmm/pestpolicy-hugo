@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Do Cockroaches Eat Bed Bugs? Predators
 date: '2025-05-04T14:10:15+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Spider Bite vs Mosquito Bite; What Bit Me?
 date: '2025-05-04T06:58:29+00:00'

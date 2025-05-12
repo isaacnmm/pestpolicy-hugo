@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How Do Dogs Get Fleas? 7 Key Places!
 date: '2025-05-04T11:46:45+00:00'

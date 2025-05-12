@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: What Does Raccoon Poop Look Like?
 date: '2025-05-04T21:59:43+00:00'

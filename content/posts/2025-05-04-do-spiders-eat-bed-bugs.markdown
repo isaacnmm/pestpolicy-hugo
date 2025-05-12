@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Do Spiders Eat Bed Bugs?
 date: '2025-05-04T01:30:46+00:00'

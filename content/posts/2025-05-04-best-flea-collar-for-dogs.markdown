@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Best Flea Collar for Dogs - Protect Your Pet
 date: '2025-05-04T20:33:27+00:00'

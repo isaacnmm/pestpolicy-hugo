@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 'Wolf Spiders: Appearance, Behaviour, Habitat, Bites'
 date: '2025-05-04T16:06:10+00:00'

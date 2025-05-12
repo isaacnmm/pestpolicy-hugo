@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 'Springfree Trampoline Vs Regular: Complete Review'
 date: '2025-05-04T14:45:40+00:00'

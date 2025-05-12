@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Camera for Music Videos 2025 Reviewed
 date: '2025-05-04T12:02:01+00:00'

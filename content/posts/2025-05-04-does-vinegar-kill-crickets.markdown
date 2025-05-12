@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Does Vinegar Kill Crickets?
 date: '2025-05-04T17:47:23+00:00'

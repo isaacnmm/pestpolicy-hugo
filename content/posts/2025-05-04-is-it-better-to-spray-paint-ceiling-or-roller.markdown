@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Is It Better To Spray Paint Ceiling Or Roller?
 date: '2025-05-04T21:40:28+00:00'

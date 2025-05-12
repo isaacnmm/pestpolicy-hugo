@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Are Trampolines Good For Obese People? Plus 3 Obese Workouts
 date: '2025-05-04T21:19:32+00:00'

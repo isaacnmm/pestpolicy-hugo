@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Diatomaceous Earth - Uses & Side Effects
 date: '2025-05-04T13:14:10+00:00'

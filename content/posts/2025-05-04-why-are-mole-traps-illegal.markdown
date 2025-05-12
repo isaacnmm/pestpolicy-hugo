@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Why are Mole Traps Illegal? In All States?
 date: '2025-05-04T15:40:36+00:00'

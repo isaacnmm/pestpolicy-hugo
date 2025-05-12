@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 10 Best Shoes for Sled Pushing 2025
 date: '2025-05-04T08:45:02+00:00'

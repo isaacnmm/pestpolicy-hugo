@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Paint for Outdoor Wood Furniture 2025
 date: '2025-05-04T07:52:27+00:00'

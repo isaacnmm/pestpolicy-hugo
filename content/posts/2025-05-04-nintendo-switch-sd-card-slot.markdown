@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Nintendo switch SD card slot
 date: '2025-05-04T19:40:39+00:00'

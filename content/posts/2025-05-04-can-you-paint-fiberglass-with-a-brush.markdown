@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Can You Paint Fiberglass With a Brush?
 date: '2025-05-04T08:03:03+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Dog Ear Mites Vs Yeast Infection
 date: '2025-05-04T19:31:20+00:00'

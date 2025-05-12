@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: What Do Flea Eggs Look Like?
 date: '2025-05-04T11:34:46+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best HVLP Paint Sprayer for Latex Paint 2025
 date: '2025-05-04T21:12:03+00:00'

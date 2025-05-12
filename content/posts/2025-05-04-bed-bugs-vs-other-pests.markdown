@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Bed Bugs vs Other Pests
 date: '2025-05-04T16:57:53+00:00'

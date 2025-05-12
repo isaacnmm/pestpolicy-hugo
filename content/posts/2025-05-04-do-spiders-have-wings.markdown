@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Do Spiders Have Wings? 7 Quick Facts
 date: '2025-05-04T02:52:35+00:00'

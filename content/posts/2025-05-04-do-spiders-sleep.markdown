@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Do Spiders Sleep? How Spiders Rest
 date: '2025-05-04T05:52:17+00:00'

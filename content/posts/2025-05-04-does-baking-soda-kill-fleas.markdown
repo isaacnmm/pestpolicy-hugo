@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Does Baking Soda Kill Fleas? Natural
 date: '2025-05-04T21:18:03+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: "Capstar Flea\_Treatment Reviews - Oral Flea Treatment"
 date: '2025-05-04T16:45:57+00:00'

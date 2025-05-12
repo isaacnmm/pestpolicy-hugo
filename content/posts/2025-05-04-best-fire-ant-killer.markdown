@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 9 Best Fire Ant Killer for 2025 Reviewed
 date: '2025-05-04T10:44:12+00:00'

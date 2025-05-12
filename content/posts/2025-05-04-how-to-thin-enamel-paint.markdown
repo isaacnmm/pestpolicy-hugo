@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Thin Enamel Paint
 date: '2025-05-04T07:41:47+00:00'

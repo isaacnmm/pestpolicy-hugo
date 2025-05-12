@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How To Paint Brick (A Step-by-Step Guide)
 date: '2025-05-04T00:19:30+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: What Does A Termite Look Like?
 date: '2025-05-04T08:25:46+00:00'

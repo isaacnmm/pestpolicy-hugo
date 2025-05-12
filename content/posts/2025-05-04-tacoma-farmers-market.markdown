@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Tacoma Farmers Market
 date: '2025-05-04T20:30:22+00:00'

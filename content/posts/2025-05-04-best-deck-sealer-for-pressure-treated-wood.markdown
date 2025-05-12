@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Deck Sealer for Pressure Treated Wood 2025
 date: '2025-05-04T04:13:57+00:00'

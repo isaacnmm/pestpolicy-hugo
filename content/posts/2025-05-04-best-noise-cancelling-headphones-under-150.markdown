@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Noise Cancelling Headphones Under 150 in 2025
 date: '2025-05-04T01:10:11+00:00'

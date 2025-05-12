@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Baby Bed Bugs (Looks, Size, Colors, Bites)
 date: '2025-05-04T05:25:12+00:00'

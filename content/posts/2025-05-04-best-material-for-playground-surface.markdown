@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Top 6 Best Material for Playground Surface 2025 Reviewed
 date: '2025-05-04T23:04:13+00:00'

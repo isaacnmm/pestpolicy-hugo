@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Weed Killer for Lawns Reviewed
 date: '2025-05-04T00:02:50+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Can Cats Get Fleas in the Winter?
 date: '2025-05-04T03:32:48+00:00'

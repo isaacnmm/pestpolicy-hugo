@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Swing Sets for Small Yards in 2025 Reviewed
 date: '2025-05-04T21:46:59+00:00'

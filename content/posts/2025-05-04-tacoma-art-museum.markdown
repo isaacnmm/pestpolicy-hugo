@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Tacoma Art Museum
 date: '2025-05-04T12:36:08+00:00'

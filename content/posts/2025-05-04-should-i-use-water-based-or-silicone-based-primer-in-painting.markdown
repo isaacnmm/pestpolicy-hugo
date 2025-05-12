@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Should I Use Water-Based Or Silicone-Based Primer In Painting?
 date: '2025-05-04T04:48:54+00:00'

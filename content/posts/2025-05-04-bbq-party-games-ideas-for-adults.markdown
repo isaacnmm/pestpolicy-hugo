@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 10 BBQ Party Games Ideas for Adults 2025 Reviewed
 date: '2025-05-04T06:15:43+00:00'

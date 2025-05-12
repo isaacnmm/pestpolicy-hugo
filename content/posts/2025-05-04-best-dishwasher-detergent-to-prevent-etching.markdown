@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 5 Best Dishwasher Detergent to Prevent Etching 2025
 date: '2025-05-04T09:16:30+00:00'

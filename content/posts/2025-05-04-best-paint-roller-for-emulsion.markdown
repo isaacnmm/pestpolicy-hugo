@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Paint Roller for Emulsion in 2025
 date: '2025-05-04T15:34:25+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 5 Pet Lizards That Look Like Dragons
 date: '2025-05-04T09:14:12+00:00'

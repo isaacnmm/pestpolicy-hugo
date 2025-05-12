@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Oil Based Primer for Cabinets 2025
 date: '2025-05-04T04:19:03+00:00'

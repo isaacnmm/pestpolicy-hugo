@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Does WD 40 Remove Paint?
 date: '2025-05-04T12:44:55+00:00'

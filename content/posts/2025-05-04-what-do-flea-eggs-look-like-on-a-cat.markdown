@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: What Do Flea Eggs Look Like on a Cat?
 date: '2025-05-04T15:44:26+00:00'

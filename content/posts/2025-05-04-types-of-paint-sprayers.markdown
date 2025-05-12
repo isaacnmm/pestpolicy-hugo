@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Types of Paint Sprayers
 date: '2025-05-04T01:19:13+00:00'

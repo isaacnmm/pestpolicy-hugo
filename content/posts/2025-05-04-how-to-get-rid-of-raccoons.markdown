@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Get Rid of Raccoons (in Attic & Yard)
 date: '2025-05-04T03:13:24+00:00'

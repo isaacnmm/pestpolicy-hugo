@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Shoes for Insertional Achilles Tendonitis 2025
 date: '2025-05-04T16:22:03+00:00'

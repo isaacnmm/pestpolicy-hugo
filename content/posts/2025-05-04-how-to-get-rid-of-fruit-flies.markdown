@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How To Get Rid of Fruit Flies (5 Easy Steps)
 date: '2025-05-04T08:58:03+00:00'

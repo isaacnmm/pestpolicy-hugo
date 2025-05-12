@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Pure Lye Drain Opener Review
 date: '2025-05-04T20:54:09+00:00'

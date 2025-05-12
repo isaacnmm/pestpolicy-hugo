@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 3D Wall Painting for Your Bedroom
 date: '2025-05-04T13:15:15+00:00'

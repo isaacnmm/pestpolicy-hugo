@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 'How to Use Tea Tree Oil for Bed Bugs: Does it Work?'
 date: '2025-05-04T13:14:56+00:00'

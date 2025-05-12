@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Roach Killer for 2025 Reviewed
 date: '2025-05-04T13:33:52+00:00'

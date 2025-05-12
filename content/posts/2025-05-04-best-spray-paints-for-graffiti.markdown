@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Spray Paints for Graffiti in 2025
 date: '2025-05-04T05:59:12+00:00'

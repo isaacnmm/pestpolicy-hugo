@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Samsung EVO Plus Review for Your Raspberry Pi
 date: '2025-05-04T03:15:19+00:00'

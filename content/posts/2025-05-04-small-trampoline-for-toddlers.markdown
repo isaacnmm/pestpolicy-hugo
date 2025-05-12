@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Small Trampoline For Toddlers in 2025 Reviewed
 date: '2025-05-04T18:57:53+00:00'

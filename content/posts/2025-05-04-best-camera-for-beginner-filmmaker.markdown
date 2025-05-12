@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 9 Best Camera for Beginner Filmmaker 2025
 date: '2025-05-04T21:24:17+00:00'

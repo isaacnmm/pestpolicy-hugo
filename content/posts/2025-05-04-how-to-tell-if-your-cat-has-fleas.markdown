@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How To Tell If Your Cat Has Fleas
 date: '2025-05-04T04:53:37+00:00'

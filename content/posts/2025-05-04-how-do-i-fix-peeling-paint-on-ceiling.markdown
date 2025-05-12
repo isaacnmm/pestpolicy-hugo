@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How Do I Fix Peeling Paint on Ceiling
 date: '2025-05-04T08:02:18+00:00'

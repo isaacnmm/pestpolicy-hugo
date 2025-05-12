@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Bed Bug Eggs * Pictures * (Flea Life Cycle)
 date: '2025-05-04T12:15:25+00:00'

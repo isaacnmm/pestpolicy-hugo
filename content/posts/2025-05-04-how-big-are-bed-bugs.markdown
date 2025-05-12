@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How Big are Bed Bugs? Identification & Removal
 date: '2025-05-04T14:04:51+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Substrate for Leopard Gecko Reviewed
 date: '2025-05-04T20:03:42+00:00'

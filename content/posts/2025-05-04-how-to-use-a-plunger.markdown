@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Use a Plunger for Toilet or Sink Drain
 date: '2025-05-04T17:45:51+00:00'

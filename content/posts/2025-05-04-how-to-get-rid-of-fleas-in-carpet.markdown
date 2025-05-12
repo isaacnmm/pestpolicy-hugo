@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Get Rid Of Fleas in Carpet
 date: '2025-05-04T06:52:45+00:00'

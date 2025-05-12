@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Riding Lawn Mower for Small Yard 2025
 date: '2025-05-04T11:08:38+00:00'

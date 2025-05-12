@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Remove Acrylic Paint from Canvas
 date: '2025-05-04T14:38:41+00:00'

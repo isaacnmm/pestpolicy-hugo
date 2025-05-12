@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Wooden Swing Set 2025 Reviewed
 date: '2025-05-04T01:32:44+00:00'

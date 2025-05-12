@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Does Lavender Oil Kill Fleas?
 date: '2025-05-04T20:41:53+00:00'

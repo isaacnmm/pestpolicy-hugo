@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Paint Kitchen Cabinets without Sanding
 date: '2025-05-04T15:11:38+00:00'

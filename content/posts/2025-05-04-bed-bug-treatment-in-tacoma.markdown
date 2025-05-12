@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Bed Bug Treatment in Tacoma
 date: '2025-05-04T01:25:36+00:00'

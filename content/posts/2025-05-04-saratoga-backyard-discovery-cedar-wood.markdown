@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Saratoga Backyard Discovery - Cedar Wood
 date: '2025-05-04T05:53:29+00:00'

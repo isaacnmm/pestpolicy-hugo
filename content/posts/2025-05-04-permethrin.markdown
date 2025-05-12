@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Permethrin Insect Repellent - Interactions, Side Effects
 date: '2025-05-04T08:48:55+00:00'

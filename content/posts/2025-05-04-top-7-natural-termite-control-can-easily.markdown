@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Top 7 Natural Termite Control Methods
 date: '2025-05-04T02:17:58+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Fly Spray for Horses 2025 Reviewed
 date: '2025-05-04T17:34:06+00:00'

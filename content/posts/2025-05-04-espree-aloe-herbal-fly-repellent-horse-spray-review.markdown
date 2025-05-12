@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Espree Aloe Herbal Fly Repellent Horse Spray Review
 date: '2025-05-04T15:23:26+00:00'

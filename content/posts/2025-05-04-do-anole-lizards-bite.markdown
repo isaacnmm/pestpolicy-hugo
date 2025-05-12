@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Do Anole Lizards Bite?
 date: '2025-05-04T02:47:01+00:00'

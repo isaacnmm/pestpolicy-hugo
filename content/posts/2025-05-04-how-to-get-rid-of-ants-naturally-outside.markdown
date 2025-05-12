@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: How to Get Rid of Ants Naturally Outside??
 date: '2025-05-04T15:44:15+00:00'

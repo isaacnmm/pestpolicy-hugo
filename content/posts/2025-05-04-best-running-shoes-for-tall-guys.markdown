@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Running Shoes for Tall Guys 2025
 date: '2025-05-04T07:25:17+00:00'

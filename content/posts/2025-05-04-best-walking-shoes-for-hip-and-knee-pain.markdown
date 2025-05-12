@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Walking Shoes for Hip and Knee Pain 2025
 date: '2025-05-04T22:09:17+00:00'

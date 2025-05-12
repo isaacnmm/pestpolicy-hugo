@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Using Borax for Ants Outside
 date: '2025-05-04T11:45:42+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Work Boots for Plantar Fasciitis 2025 Reviewed
 date: '2025-05-04T21:22:11+00:00'

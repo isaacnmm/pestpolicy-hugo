@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Lifetime Monkey Bar 9 Foot Wavy Slide
 date: '2025-05-04T15:46:57+00:00'

@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 'How to Paint a Garage Floor: Epoxy or Latex?'
 date: '2025-05-04T07:08:00+00:00'

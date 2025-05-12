@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Flying Ants vs. Termites - In-Depth Pest Control
 date: '2025-05-04T20:28:41+00:00'

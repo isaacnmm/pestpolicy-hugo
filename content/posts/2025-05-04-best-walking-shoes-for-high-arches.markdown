@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 9 Best Walking Shoes for High Arches 2025 Reviewed
 date: '2025-05-04T07:08:54+00:00'

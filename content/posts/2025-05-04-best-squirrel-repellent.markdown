@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: Top 5 Best Squirrel Repellent - Deterrents
 date: '2025-05-04T07:09:03+00:00'

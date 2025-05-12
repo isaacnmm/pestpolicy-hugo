@@ -1,4 +1,5 @@
 ﻿---
+author: We may earn a commission when you click and buy from Amazon.com
 layout: post
 title: 7 Best Electronic Flea Combs for Cats &amp; Dogs
 date: '2025-05-04T11:17:05+00:00'
